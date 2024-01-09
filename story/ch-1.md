@@ -73,7 +73,7 @@ It had been nearly four years.
 
 "Bullshit. You didn't—you—it's been _four years._ And you just… why do I even bother talking to you? You just want me to do what you want. And you dangle food and shelter in front of me like—"
 
-His careful rhetorical poise now broken, Alyosha struggled to prioritize every relevant thought from the past four years and arrange them into sentences. He knew this was an argument he couldn't win, but what else could he do but keep fighting?
+His careful rhetorical poise now broken, Alexey struggled to prioritize every relevant thought from the past four years and arrange them into sentences. He knew this was an argument he couldn't win, but what else could he do but keep fighting?
 
 "Of course I want you to do what I want! What mother doesn't want her child to listen to her? What, you think I will just stand by and watch you freeze to death in that house? What mother does that?"
 
