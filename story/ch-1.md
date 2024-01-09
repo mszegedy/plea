@@ -37,7 +37,7 @@ A shadow passed over the door's window, and a moment later, the sound of the doo
 
 "No, no, you're no trouble at all! Alexey, your mother is here to see you. Shall I let her in?"
 
-His heart overrode the veto and put all its power into supplying his brain with the oxygen necessary to process the implications of this. He came up blank. He hadn't seen his mother in… three years? And they had left on some of the worst possible terms. She had little means of finding out that he was here, and more to the point, she had _no_ means of _caring_ that he was here. As far as he knew, he was effectively disowned.
+His heart overrode the veto and put all its power into supplying his brain with the oxygen necessary to process the implications of this. He came up blank. He hadn't seen his mother in… the quantity of time did not immediately spring to his mind. They had left on some of the worst possible terms. She had little means of finding out that he was here, and more to the point, she had _no_ means of _caring_ that he was here. As far as he knew, he was effectively disowned.
 
 On account of turning out to be a guy. His bad.
 
@@ -97,6 +97,34 @@ Alexey had heard this one before.
 
 "What nonsense are you on about? I would never do that! I can't believe that _this_ is how you're reacting to finding out that your mother's dying."
 
-"You're _not. Dying._ Four years and you haven't moved on!"
+"You're _not. Dying._ Four years and you haven't moved on! Four years and you're doing the same routine on me! I thought you were supposed to be _good_ at this. How did I ever fall for it?"
 
-_[the writing of this chapter is in progress]_
+"…believe what you want. Don't come to my funeral, then, and regret it for the _rest_ of your short life. Die sad and die alone, because you didn't even have enough love to give your mother. Here's what I came to tell you, then: you're in my will. You get Shchavel' House, and the riches that come with it. _Provided_ you live long enough to claim it. You are the heir to the Ryzhaya name."
+
+Alexey paused. This was new. And it was a serious change in her attitude towards him, to entrust him with such an important legacy. Except…
+
+"Oh, I get it. This is a new stage of denial for you. Sorry, but I'm still a guy. Better give it to my sister."
+
+There were no Ryzhaya heirs, only heiresses. For some reason, since decades even before his conception, his mother had decided that her firstborn would be the heiress. Despite his gender directly contradicting this story, he'd endured a lifetime of very uncomfortable disappointment, delusion, and possessiveness on the part of his mother regarding him and his life. She'd never given up and just designated him heir anyway, though. This was a new, high-risk gambit on her part, and a petty one at that, putting her inheritance on the line just to harrass him. His mind was already automatically calculating the political implications of this move, trying to anticipate the reactions of his extended family and what his mother might have to gain from them, but he resisted. Alexey Balandin was too _good_ for Ryzhaya internal politics.
+
+His mother crushed his thought process into a wreck with a new surprise.
+
+"Of course you're a boy. I gave birth to you, I know you're a boy. You are still the heir."
+
+What—
+
+She sighed. "Make of it what you will. You know where to find me, as long as I live. My lawyers know where to find you, afterwards. I welcome you back, at Shchavel' House. I will be gone by winter. Know that I love you. I expected as much from you in return, but… I don't know. I must have done something wrong with you, I don't know what. But you're still the heir."
+
+Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. Her mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Balandin may not, in fact, have been too good for Ryzhaya internal politics.
+
+"Alexey?"
+
+He yelped.
+
+"Sorry! I didn't mean to startle you. Alexey, would you mind if I took your vitals?"
+
+It was the nurse from before. He relaxed, and rubbed his forehead. Then he noticed his hands had several new mosquito bites on them. He scratched at them a little. He really wanted to get out of here.
+
+---
+
+_[the writing of this chapter is in progress but this is the end of the scene]_
