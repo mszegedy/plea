@@ -87,4 +87,16 @@ His careful rhetorical poise now broken, Alexey struggled to prioritize every re
 
 "I'm dying."
 
+Alexey had heard this one before.
+
+"Yeah. Whatever. Are we done here?"
+
+"How can you be this cruel to me? How can you do this to your own mother?"
+
+"My 'own mother' told me that she's dying years ago. Repeatedly. To emotionally manipulate me. Why don't you come up with something original? I dunno, like that my sister's dying instead, or something. Maybe _that_ would work."
+
+"What nonsense are you on about? I would never do that! I can't believe that _this_ is how you're reacting to finding out that your mother's dying."
+
+"You're _not. Dying._ Four years and you haven't moved on!"
+
 _[the writing of this chapter is in progress]_
