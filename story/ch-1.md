@@ -191,4 +191,6 @@ Alexey was silent for a bit. Then he got out of the car.
 
 ---
 
-_\[the writing of this chapter is in progress but this is the end of the above scene]_
+Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants,
+
+_\[the writing of this chapter is in progress]_
