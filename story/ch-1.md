@@ -31,11 +31,11 @@ He took stock of the room. In typical Keleykhsky fashion, the furniture was a ne
 
 A shadow passed over the door's window, and a moment later, the sound of the doorknob shook all remaining stupor out of his senses and attempted to kick his heart into a higher gear, an action vetoed at the last moment by his common sense. _This will be a nurse. They are not dangerous. They can help._
 
-"Hello? Alexey Balandin? You're awake?"
+"Hello? Alexey Pankratyevitch? You're awake?"
 
 "Yeah," he replied. "Sorry."
 
-"No, no, you're no trouble at all! Alexey, your mother is here to see you. Shall I let her in?"
+"No, no, you're no trouble at all! Alexey Pankratyevitch, your mother is here to see you. Shall I let her in?"
 
 His heart overrode the veto and put all its power into supplying his brain with the oxygen necessary to process the implications of this. He came up blank. He hadn't seen his mother in… the quantity of time did not immediately spring to his mind. They had left on some of the worst possible terms. She had little means of finding out that he was here, and more to the point, she had _no_ means of _caring_ that he was here. As far as he knew, he was effectively disowned.
 
@@ -117,11 +117,11 @@ She sighed. "Make of it what you will. You know where to find me, as long as I l
 
 Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. Her mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Pankratyevitch may not, in fact, have been too good for Ryzhaya internal politics.
 
-"Alexey?"
+"Alexey Pankratyevitch?"
 
 He yelped.
 
-"Sorry! I didn't mean to startle you. Alexey, would you mind if I took your vitals?"
+"Sorry! I didn't mean to startle you. Alexey Pankratyevitch, would you mind if I took your vitals?"
 
 It was the nurse from before. He relaxed, and rubbed his forehead. Then he noticed his hands had several new mosquito bites on them. He scratched at them a little. He really wanted to get out of here.
 
