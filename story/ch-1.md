@@ -23,7 +23,7 @@ _I want to trade._
 
 But though her gaze was fixed that night on the matchbox house in the hills of Keleykh, though she could not possibly have misheard his desperate entreaty, the new year found him in a hospital bed, rather than the Moon-Mother's frozen embrace. His sleeves had been cut away with fabric scissors and replaced with gauze, but the rest of his clothing remained intact, soaked through with at least three individual strata of bloodstains. Where his skin wasn't stained yellow with iodine, or caked with dry blood, or broken by new scar tissue and sutures, it was nearly translucent quartz sand, detailed with even starker white criss-crosses. His jeans, out of great sympathy for his skin, were in a similar condition, but his oversized hoodie remained far more loyal to its job of hiding everything and anything at all interesting about him in a sea of black, even despite its newly sleeveless nature.
 
-Keleykh General Hospital was a reasonably competent establishment, but being located in a remote big city, their emergency ward was overburdened and understaffed. Alexey Pankratyevich Balandin was lucky to have a bed, and admitted to himself that it was a comfortable place to wake up to another day of continuing to have to live his life.
+Keleykh General Hospital was a reasonably competent establishment, but being located in a remote big city, their emergency ward was overburdened and understaffed. Alexey Pankratyevitch Balandin was lucky to have a bed, and admitted to himself that it was a comfortable place to wake up to another day of continuing to have to live his life.
 
 He tried sitting up. He didn't feel completely awake yet, but he already felt his attention and willpower being sapped by unwelcome sensations from his arms. He bore the pain with some pride; it was what he had been going for, after all, and he refused to feel sorry for it. But they were much more itchy than painful, especially where the gauze had clotted to the _inside_ of a wound, and that was just terrible. And underneath the smell of iodine and alcohol, he could smell rotting blood, which brought back more than a few unpleasant memories. His head swam a little. He considered going back to sleep.
 
@@ -105,7 +105,7 @@ Alexey paused. This was new. And it was a serious change in her attitude towards
 
 "Oh, I get it. This is a new stage of denial for you. Sorry, but I'm still a guy. Better give it to my sister."
 
-There were no Ryzhaya heirs, only heiresses. For some reason, since decades even before his conception, his mother had decided that her firstborn would be the heiress. Despite his gender directly contradicting this story, he'd endured a lifetime of very uncomfortable disappointment, delusion, and possessiveness on the part of his mother regarding him and his life. She'd never given up and just designated him heir anyway, though. This was a new, high-risk gambit on her part, and a petty one at that, putting her inheritance on the line just to harrass him. His mind was already automatically calculating the political implications of this move, trying to anticipate the reactions of his extended family and what his mother might have to gain from them, but he resisted. Alexey Balandin was too _good_ for Ryzhaya internal politics.
+There were no Ryzhaya heirs, only heiresses. For some reason, since decades even before his conception, his mother had decided that her firstborn would be the heiress. Despite his gender directly contradicting this story, he'd endured a lifetime of very uncomfortable disappointment, delusion, and possessiveness on the part of his mother regarding him and his life. She'd never given up and just designated him heir anyway, though. This was a new, high-risk gambit on her part, and a petty one at that, putting her inheritance on the line just to harrass him. His mind was already automatically calculating the political implications of this move, trying to anticipate the reactions of his extended family and what his mother might have to gain from them, but he resisted. Alexey Pankratyevitch was too _good_ for Ryzhaya internal politics.
 
 His mother crushed his thought process into a wreck with a new surprise.
 
@@ -115,7 +115,7 @@ What—
 
 She sighed. "Make of it what you will. You know where to find me, as long as I live. My lawyers know where to find you, afterwards. I welcome you back, at Shchavel' House. I will be gone by winter. Know that I love you. I expected as much from you in return, but… I don't know. I must have done something wrong with you, I don't know what. But you're still the heir."
 
-Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. Her mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Balandin may not, in fact, have been too good for Ryzhaya internal politics.
+Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. Her mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Pankratyevitch may not, in fact, have been too good for Ryzhaya internal politics.
 
 "Alexey?"
 
@@ -127,4 +127,6 @@ It was the nurse from before. He relaxed, and rubbed his forehead. Then he notic
 
 ---
 
-_[the writing of this chapter is in progress but this is the end of the scene]_
+As it turned out, the hospital had the same idea. They were ill-equipped to treat or refer mental health issues, the nearest asylum in the neighboring locality of Dubrovka having been defunct for the past decade or so, so all they could do was make sure Alexey's wounds were treated. Once he managed to get himself ejected to the waiting area, Alexey borrowed some time on a faux-wood Bakelite wall telephone, heavily scuffed despite having been installed only months ago. As he fingered the rotary dial with the matchbox house's number, he thought about how he should break the news to his friends. _There may be no news to break. She doesn't seriously intend for me to receive the inheritance… does she?_
+
+_[the writing of this chapter is in progress]_
