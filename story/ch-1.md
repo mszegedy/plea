@@ -161,6 +161,22 @@ Intending to punctuate her next move with a start of the car, Artemis promptly f
 
 "Yeah yeah, skip it, I don't need to hear it."
 
-"Yeah. I can understand "
+"Yeah. I can understand, like, how our background makes it difficult to deal with self-hatred. But my self-hatred takes the form of transphobia. Where does yours come from? Oh my god, lady, I'm not going to hit you! Can you believe this person? She's holding her bag up and cowering at me like I'm mugging her, but all I'm doing is driving."
+
+Alexey slumped further down in his seat. This isn't how these conversations normally went. He thought he'd been relatively forthcoming to Artemis about his mental health issues. But thinking back on it, he couldn't really remember getting into what sorts of thoughts compelled him to carve barcodes into his arms, or into what it was that he'd experienced at the cult that almost destroyed him. What _had_ it been…? It was only a couple years ago, but his memories of it were very foggy. He reasoned that that was normal for the worst time period of his life, and he wasn't inclined to pursue the question further, unless Artemis inquired.
+
+"Well… you know my parents. They were always, like, punishing me for not living up to their standards, you know? Sometimes it felt like I was being punished for nothing more than not being a girl."
+
+"So… your brain-worms are about _not_ being a girl? Look, I know I said I'd—"
+
+"That's _not_ what I mean. Let me finish my fucking sentences. So like, when I was a kid, I… ever since I was a kid, I've always thought, maybe I deserve it, y'know? Call it adaptive or maladaptive or whatever, but I always thought about people I've read about in _way_ worse situations than me, who survived longer than I would have. I felt like a total loser."
+
+Artemis stayed silent and hung onto every word. This was exactly the kind of progress she was hoping to make.
+
+"And then like, after I met you guys, I got to meet actual people like that! Actual people who had way more to deal with than me, and were doing better at it… and then some of them died _anyway._"
+
+Artemis bit her lip. Alexey was veering into letting his self-hatred do the talking for him. It was informative, but not exactly productive. They 
+
+"
 
 _\[the writing of this chapter is in progress]_
