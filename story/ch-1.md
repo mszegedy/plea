@@ -131,7 +131,9 @@ As it turned out, the hospital had the same idea. They were ill-equipped to trea
 
 <!-- Artemis's patronymic would be Ilyinitchna, but she doesn't use it. -->
 
-Eventually, Alexey was rescued from the hospital by one Artemis Metchnikova, the only one of their four-membered friend group responsible enough to dare take the first shot at debriefing Alexey following an apparent suicide attempt. She directed him to the rusted cinnabar red Mitsubishi that served as the workhorse of the matchbox house, which received much more use than it had any right to in a city with a nominally functional public transit system. It was rude, after all, to direct your friend to come home from the hospital via a bus which only took him halfway up the hill, condemning him to trek outside in January weather with no sleeves. If your friend was in trouble, you were supposed to be _there_ for him.
+Eventually, Alexey was rescued from the hospital by one Artemis Metchnikova, the only one of their four-membered friend group responsible enough to dare take the first shot at debriefing Alexey following an apparent suicide attempt. She brought a rusted cinnabar red Mitsubishi that served as the workhorse of the matchbox house, which received much more use than it had any right to in a city with a nominally functional public transit system. It was rude, after all, to direct your friend to come home from the hospital via a bus which only took him halfway up the hill, condemning him to trek outside in January weather with no sleeves. If your friend was in trouble, you were supposed to be _there_ for him.
+
+And that was what Artemis was doing, clad in dyed and embroidered reindeer leather, equal parts Siberian reindeer herder and 80s biker. All Alexey had to do was detect some black-brown pageboy hair and a matching mass of leather out of the corner of his eye, and he immediately wordlessly got up to see her out. He did not want to spend another second on what was quickly becoming his least favorite network of wall-to-wall linoleum.
 
 Once they were safely in the car, Artemis opened with the most tried and true of all therapeutic phrases.
 
