@@ -175,8 +175,18 @@ Artemis stayed silent and hung onto every word. This was exactly the kind of pro
 
 "And then like, after I met you guys, I got to meet actual people like that! Actual people who had way more to deal with than me, and were doing better at it… and then some of them died _anyway._"
 
-Artemis bit her lip. Alexey was veering into letting his self-hatred do the talking for him. It was informative, but not exactly productive. They 
+Artemis bit her lip. Alexey was veering into letting his self-hatred do the talking for him. It was informative, but not exactly productive. She pulled into the matchbox house's driveway and turned off the engine. Alexey kept talking.
 
-"
+"And so like… I get that it's really just survivor's guilt or whatever, but I feel like I haven't earned my place among you guys. I'm _cis._ The only stuff that's even happened to me was my parents abusing me, and yeah, that's fucked up, but if I were in your place or Xenia's or Olena's or _anyone's_, then I'd be fucking _dead._ And I hate that! I hate feeling like I'm lucky to be alive! I can't deal with that!"
 
-_\[the writing of this chapter is in progress]_
+"Putting aside that it isn't healthy to compare your traumas with others' like that, which I'm sure you know… does this mean your plan was to, I guess, fix a cosmic mistake? Balance some metaphysical karma scale by killing yourself?"
+
+"…I guess. I made up a prayer before I did it, and said it out loud. To the Moon-Mother. The Nganasan goddess who can move the souls of the dead around. I told her to take my soul in exchange for sending back people who didn't deserve to die."
+
+"Well, and, you're alive. So what does that tell you?"
+
+Alexey was silent for a bit. Then he got out of the car.
+
+---
+
+_\[the writing of this chapter is in progress but this is the end of the above scene]_
