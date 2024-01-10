@@ -173,7 +173,7 @@ Alexey slumped further down in his seat. This isn't how these conversations norm
 
 "That's _not_ what I mean. Let me finish my fucking sentences. So like, when I was a kid, I… ever since I was a kid, I've always thought, maybe I deserve it, y'know? Call it adaptive or maladaptive or whatever, but I always thought about people I've read about in _way_ worse situations than me, who survived longer than I would have. I felt like a total loser."
 
-Artemis stayed silent and hung onto every word. This was exactly the kind of progress she was hoping to make.
+Artemis stayed silent and patient. This was exactly the kind of progress she was hoping to make.
 
 "And then like, after I met you guys, I got to meet actual people like that! Actual people who had way more to deal with than me, and were doing better at it… and then some of them died _anyway._"
 
