@@ -53,7 +53,7 @@ It meant that she wasn't mad at him.
 
 "…hi. Mother."
 
-The last he remembered, her hair had been sandy blonde, losing more of its pigmentation with each summer. Now it was thick with dye, patterned after her bloodline's namesake auburn. While legally none of the family had borne the name for the past century, and it had acquired a somewhat derogatory status in the modern social environment of Keleykh, there was no name that any stranger would have dared to refer to her by other than Sofia Nikolaevna Ryzhaya.
+The last he remembered, her hair had been sandy blonde, losing more of its pigmentation with each summer. Now it was thick with dye, patterned after her bloodline's namesake auburn, drawn into a loose bun with a mess of curls hanging out. While legally none of the family had borne the name for the past century, and it had acquired a somewhat derogatory status in the modern social environment of Keleykh, there was no name that any stranger would have dared to refer to her by other than Sofia Nikolaevna Ryzhaya.
 
 "I've been worried about you."
 
@@ -127,6 +127,40 @@ It was the nurse from before. He relaxed, and rubbed his forehead. Then he notic
 
 ---
 
-As it turned out, the hospital had the same idea. They were ill-equipped to treat or refer mental health issues, the nearest asylum in the neighboring locality of Dubrovka having been defunct for the past decade or so, so all they could do was make sure Alexey's wounds were treated. Once he managed to get himself ejected to the waiting area, Alexey borrowed some time on a faux-wood Bakelite wall telephone, heavily scuffed despite having been installed only months ago. As he fingered the rotary dial with the matchbox house's number, he thought about how he should break the news to his friends. _There may be no news to break. She doesn't seriously intend for me to receive the inheritance… does she?_
+As it turned out, the hospital had the same idea. They were ill-equipped to treat or refer mental health issues, the nearest asylum in the neighboring locality of Dubrovka having been defunct for the past decade or so, so all they could do was make sure Alexey's wounds were treated. Once he managed to get himself ejected to the crowded waiting area, Alexey borrowed some time on a faux-wood Bakelite wall telephone, heavily scuffed despite having been installed only months ago. As he fingered the rotary dial with the matchbox house's number, he thought about how he should break the news to his friends. _There may be no news to break. She doesn't seriously intend for me to receive the inheritance… does she? I should get this in writing. I want to see that will. Even if she's not dying soon, my family would take interest in me._ He began to wonder if confusing him and setting his famiily against him _was_ his mother's plan.
 
-_[the writing of this chapter is in progress]_
+<!-- Artemis's patronymic would be Ilyinitchna, but she doesn't use it. -->
+
+Eventually, Alexey was rescued from the hospital by one Artemis Metchnikova, the only one of their four-membered friend group responsible enough to dare take the first shot at debriefing Alexey following an apparent suicide attempt. She directed him to the rusted cinnabar red Mitsubishi that served as the workhorse of the matchbox house, which received much more use than it had any right to in a city with a nominally functional public transit system. It was rude, after all, to direct your friend to come home from the hospital via a bus which only took him halfway up the hill, condemning him to trek outside in January weather with no sleeves. If your friend was in trouble, you were supposed to be _there_ for him.
+
+Once they were safely in the car, Artemis opened with the most tried and true of all therapeutic phrases.
+
+"Hey."
+
+"…hey."
+
+Intending to punctuate her next move with a start of the car, Artemis promptly flooded the engine instead.
+
+"Let's get the fuck out of here. …fuck. That was almost cool."
+
+"It wasn't so bad. They gave me breakfast. There was jelly."
+
+"Yeah… jelly sounds nice. How are your arms?"
+
+"Itchy. Bitten by mosquitos."
+
+"Figures. …do you want to talk about it?"
+
+"What do you want me to say? It was the usual brain-worms."
+
+"Alyosha, _what_ usual brain-worms? We've talked so many times, but I feel like I still don't know what your deal is. You're not trans, fine, we've been over that. You don't wanna be a girl, so we'll stop bothering you about it. That joke started before we realized how much trauma you had about it, and I'm sorry that we played a part in that. I'm most of all sorry _I_ played a part in that. I should have realized sooner. But please, if you want constructive conversations, you gotta let me know what you're thinking. Because I haven't had your experiences."
+
+"We were part of the same stupid cult, Temmie. What do you _think_ my brain-worms are? They're all about like… how not exposing myself to hatred and abuse is, like, intellectual cowardice or whatever. And how I need to personally save the human race, or else I'm worthless."
+
+"Okay, but… _my_ brain-worms are all about being trans. Because they didn't—"
+
+"Yeah yeah, skip it, I don't need to hear it."
+
+"Yeah. I can understand "
+
+_\[the writing of this chapter is in progress]_
