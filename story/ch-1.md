@@ -191,6 +191,104 @@ Alexey was silent for a bit. Then he got out of the car.
 
 ---
 
-Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants, and its main imports were large quantities of rice, and smaller quantities of fermented bean products to eat it with. The "kitchen" was a corner of the common area taken up by a brass storm kettle, detailed to resemble a vase tunicate, a stack of sooty cookware to its left, and a bag of coal and a box of matches to its right.
+Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants, and its main imports were large quantities of rice, and smaller quantities of fermented bean products to eat it with. The "kitchen" was a corner of the common area taken up by a brass storm kettle, detailed to resemble a vase tunicate, a stack of sooty cookware to its left, a bag of coal and a box of matches to its right.
 
-_\[the writing of this chapter is in progress]_
+Vasilisa Petrovna Mirnaya was hanging out in the common area, feet propped up on the dining table, reading a pulp novel. Her casual demeanor belied an intense nerdiness, more truthfully represented by her large round reading glasses, colorful and fuzzy socks and sweater, and sweatpants.
+
+"Hey guys, what's up? God*damn* dude, you're gonna need a new hoodie."
+
+"…I'm fine. I've got spares," said Alexey.
+
+"This one was totally your fave though wasn't it."
+
+"It still is! I just need to graft some new sleeves onto it."
+
+Alexey and Artemis represented the half of the household who knew how to sew fabric, although only Artemis applied this skill with any regularity. Alexey's recent stitching experience was all the medical kind, which he was nevertheless quietly proud of.
+
+"Word. Hey Tosha, come out! Alexey's back from the hospital!"
+
+Tosha (known by this mononym to just about everyone) stuck a headful of curls and a single bespectacled eye out of his room.
+
+"H'lo. Sorry you didn't die. There's soup." His rhetorical duty concluded, Tosha disappeared again.
+
+Alexey cracked a smile for the first time since waking up. While it would have offended almost anyone else, Alexey felt that Tosha, in his bluntness, managed to show more understanding of his feelings than everyone else put together. What consolation prize could possibly make up for a failed suicide attempt, other than soup?
+
+"What kind of soup?"
+
+"Reindeer tripe," replied Artemis and Vasilisa simultaneously.
+
+Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel' House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._
+
+---
+
+The snow melted. The mosquitos came. And when they left again, a woman left with them.
+
+---
+
+A night in late October, Alexey was having a nightmare. He had nightmares every night, but this night there was a new tool in his mind's shed of torture instruments: a girl his age and build, with auburn Ryzhaya hair instead of his usual black.
+
+"Wake up," she said. "We need to meet. It's an emergency." Or something along those lines; in his dreams, it was always hard to hear, because of all the high-pitched buzzing.
+
+Half-lucid, he complied and awoke. Naked, he lumbered over to the bathroom. Wasn't the girl inside mirrors, or something? Or do I just need to use the toilet? It felt like a fever dream. A healthy Alexey did _not_ wake up sleepy. He woke up perfectly alert and functioning. Maybe he was still dreaming? He brushed against a radiator and burned his hip and hand. Yet, he still didn't awaken properly. He just kept stumbling forward.
+
+The bathroom, in one of the greater strokes of masterful architecture comprising the matchbox house, was one of the few rooms with a window. This night, just as it was the past New Year's Eve, its purpose was to permit the fullest, brightest gaze of the Moon-Mother that she could afford to give. Everything in the room, Alexey included, was outlined in blue-silver light.
+
+"Alexey?"
+
+He frowned, then turned to look at the mirror the sound had come from. He saw a girl, instead of himself.
+
+"Alexey, hello. I'm Sofia. …Pankratyevna. Do you recognize me?"
+
+He recognized her.
+
+“You were in my nightmares."
+
+The lucidity was quickly coming to him, dream-reasoning replaced with an altogether different and much more skeptical perspective.
+
+"…yeah. Alexey, you need to get out of here."
+
+"No, wait. What? Sofia, who _are_ you? My twin sister? What are you doing in my mirror?"
+
+"I'm you, from a different timeline or something, I don't know. Please, you _have_ to get to Shchavel' House, or they'll find you."
+
+Dozens of objections collided in Alexey's mind, and only one won egress from his mouth:
+
+"But… I'm _not_ a girl!"
+
+"Alexey, are you even _listening_ to me?"
+
+"Sofia, who's coming to find me? This is very important. Can I take a car? Do I have to go to Shchavel' House, or can I go… literally anywhere else?"
+
+"I don't know, I don't know any other safe places and I don't know what kind of monsters are coming to get you. I don't know! They killed Mom like an hour ago and they're going to kill you too!"
+
+"Okay, okay… are my friends safe?"
+
+"No."
+
+"…are _you_ safe?"
+
+"…I'll manage."
+
+"Like hell you will. What happens if I break this mirror? I've always wanted to do that, anyhow."
+
+"I don't know. Mom told me our worlds are equally real, or something, and the mirrors are some kind of door from one to the other."
+
+Alexey outstretched a hand and pressed his fingertips against the mirror.
+
+"Grab my hand."
+
+With some trepidation, Sofia Pankratyevna touched Alexey's hand. This turned into a handshake, which turned into a firm handhold. Alexey grabbed her elbow with his other hand, and in one motion, wrenched her into his reality. The mirror shattered, and the sink collapsed under Sofia's weight, the burst pipe washing silvered glass shrapnel off of the both of them with freezing water.
+
+"…that wasn't as satisfying as I thought it was gonna be, but still, I'm happy to see that piece of shit mirror go down."
+
+"…do you need clothes?"
+
+"Yeah. Let's dry off in my room. You wake up all my friends and then we can all get the fuck out of here."
+
+Twenty-three minutes and some frantic packing and yelling later the five of them were crammed into the Mitsubishi, Artemis at the wheel.
+
+"Downtown. Near the lower school," directed Alexey.
+
+"Got it. Let's roll," said Artemis.
+
+The Moon-Mother watched them depart into the frozen night.
