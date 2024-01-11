@@ -169,7 +169,7 @@ Alexey slumped further down in his seat. This isn't how these conversations norm
 
 "Well… you know my parents. They were always, like, punishing me for not living up to their standards, you know? Sometimes it felt like I was being punished for nothing more than not being a girl."
 
-"So… your brain-worms are about _not_ being a girl? Look, I know I said I'd—"
+"So… your brain-worms are about _not_ being a girl? Uh, I know I said I'd—"
 
 "That's _not_ what I mean. Let me finish my fucking sentences. So like, when I was a kid, I… ever since I was a kid, I've always thought, maybe I deserve it, y'know? Call it adaptive or maladaptive or whatever, but I always thought about people I've read about in _way_ worse situations than me, who survived longer than I would have. I felt like a total loser."
 
@@ -181,7 +181,7 @@ Artemis bit her lip. Alexey was veering into letting his self-hatred do the talk
 
 "And so like… I get that it's really just survivor's guilt or whatever, but I feel like I haven't earned my place among you guys. I'm _cis._ The only stuff that's even happened to me was my parents abusing me, and yeah, that's fucked up, but if I were in your place or Xenia's or Olena's or _anyone's_, then I'd be fucking _dead._ And I hate that! I hate feeling like I'm lucky to be alive! I can't deal with that!"
 
-"Putting aside that it isn't healthy to compare your traumas with others' like that, which I'm sure you know… does this mean your plan was to, I guess, fix a cosmic mistake? Balance some metaphysical karma scale by killing yourself?"
+"Putting aside that it isn't healthy to compare your traumas with others' like that, which I'm sure you know… does this mean your plan was to, uh, fix a cosmic mistake? Balance some metaphysical karma scale by killing yourself?"
 
 "…I guess. I made up a prayer before I did it, and said it out loud. To the Moon-Mother. The Nganasan goddess who can move the souls of the dead around. I told her to take my soul in exchange for sending back people who didn't deserve to die."
 
@@ -191,6 +191,6 @@ Alexey was silent for a bit. Then he got out of the car.
 
 ---
 
-Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants,
+Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants, and its main imports were large quantities of rice, and smaller quantities of fermented bean products to eat it with. The "kitchen" was a corner of the common area taken up by a brass storm kettle, detailed to resemble a vase tunicate, a stack of sooty cookware to its left, and a bag of coal and a box of matches to its right.
 
 _\[the writing of this chapter is in progress]_
