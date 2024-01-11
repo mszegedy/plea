@@ -7,7 +7,7 @@ I was inspired by [*Pact*](https://pactwebserial.wordpress.com/) by John C. McCr
 
 *Plea* is therefore set in "Keleykh". It is supposed to be both scarier and happier than *Pact*. Only time will tell if I accomplished that.
 
-**CONTENT WARNING: Suicide, self-harm, transphobia, so far.**
+**CONTENT WARNING: Suicide, self-harm, transphobia, abusive parenting, so far.**
 
 Chapters
 ========
