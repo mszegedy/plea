@@ -155,6 +155,8 @@ Intending to punctuate her next move with a start of the car, Artemis promptly f
 
 "What do you want me to say? It was the usual brain-worms."
 
+She knew she was making a mistake, ranting at Alexey after he'd barely said anything, but Artemis just couldn't hold it back. Why was he acting like she already knew what was going on? Alexey didn't exactly regularly attempt suicide.
+
 "Alyosha, _what_ usual brain-worms? We've talked so many times, but I feel like I still don't know what your deal is. You're not trans, fine, we've been over that. You don't wanna be a girl, so we'll stop bothering you about it. That joke started before we realized how much trauma you had about it, and I'm sorry that we played a part in that. I'm most of all sorry _I_ played a part in that. I should have realized sooner. But please, if you want constructive conversations, you gotta let me know what you're thinking. Because I haven't had your experiences."
 
 "We were part of the same stupid cult, Temmie. What do you _think_ my brain-worms are? They're all about like… how not exposing myself to hatred and abuse is, like, intellectual cowardice or whatever. And how I need to personally save the human race, or else I'm worthless."
@@ -229,7 +231,7 @@ A night in late October, Alexey was having a nightmare. He had nightmares every 
 
 "Wake up," she said. "We need to meet. It's an emergency." Or something along those lines; in his dreams, it was always hard to hear, because of all the high-pitched buzzing.
 
-Half-lucid, he complied and awoke. Naked, he lumbered over to the bathroom. Wasn't the girl inside mirrors, or something? Or do I just need to use the toilet? It felt like a fever dream. A healthy Alexey did _not_ wake up sleepy. He woke up perfectly alert and functioning. Maybe he was still dreaming? He brushed against a radiator and burned his hip and hand. Yet, he still didn't awaken properly. He just kept stumbling forward.
+Half-lucid, he complied and awoke. Naked, he lumbered over to the bathroom. Wasn't the girl inside mirrors, or something? Or did he just need to use the toilet? It felt like a fever dream. A healthy Alexey did _not_ wake up sleepy. He woke up perfectly alert and functioning. Maybe he was still dreaming? He brushed against a radiator and burned his hip and hand. Yet, he still didn't awaken properly. He just kept stumbling forward.
 
 The bathroom, in one of the greater strokes of masterful architecture comprising the matchbox house, was one of the few rooms with a window. This night, just as it was the past New Year's Eve, its purpose was to permit the fullest, brightest gaze of the Moon-Mother that she could afford to give. Everything in the room, Alexey included, was outlined in blue-silver light.
 
