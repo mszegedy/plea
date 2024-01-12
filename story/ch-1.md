@@ -155,7 +155,7 @@ Intending to punctuate her next move with a start of the car, Artemis promptly f
 
 "What do you want me to say? It was the usual brain-worms."
 
-She knew she was making a mistake, ranting at Alexey after he'd barely said anything, but Artemis just couldn't hold it back. Why was he acting like she already knew what was going on? Alexey didn't exactly regularly attempt suicide.
+She knew she was about to make a mistake, ranting at Alexey after he'd barely said anything, but Artemis just couldn't hold it back. Why was he acting like she already knew what was going on? Alexey didn't exactly regularly attempt suicide.
 
 "Alyosha, _what_ usual brain-worms? We've talked so many times, but I feel like I still don't know what your deal is. You're not trans, fine, we've been over that. You don't wanna be a girl, so we'll stop bothering you about it. That joke started before we realized how much trauma you had about it, and I'm sorry that we played a part in that. I'm most of all sorry _I_ played a part in that. I should have realized sooner. But please, if you want constructive conversations, you gotta let me know what you're thinking. Because I haven't had your experiences."
 
