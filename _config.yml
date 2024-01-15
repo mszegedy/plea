@@ -1,6 +1,9 @@
 title: Plea to the Moon-Mother
 author: Maria Szegedy
 theme: minima
+url: https://mszegedy.github.io/plea/
+disqus:
+  shortname: plea
 
 minima:
   skin: dark
