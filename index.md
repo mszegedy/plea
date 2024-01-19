@@ -13,3 +13,5 @@ Chapters
 ========
 
 [Chapter 1](story/ch-1.html)
+
+[Chapter 2](story/ch-2.html)
