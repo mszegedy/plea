@@ -24,7 +24,9 @@ Most of the passengers were uncomfortable with even short two-person excursions 
 
 "Oh… I guess it's a mirror thing. This side of the road looks like the left for me."
 
-Alexey pressed his hands into his face to relieve some stress. Okay, so Sofia saw the world backwards. Or thought of it backwards. Did she also taste and smell it backwards? He thought of how he could test that. He would need…
+Alexey pressed his hands into his face to relieve some stress, and recoiled. They smelled of blood. Breaking the mirror had been heroic, but dangerous.
+
+So Sofia saw the world backwards. Or thought of it backwards. Did she also taste and smell it backwards? He thought of how he could test that. He would need…
 
 "I'll get you some peppermint to chew on," said Artemis, finishing Alexey's thought. "If it tastes like spearmint, you're mirrored relative to us, which is gonna be a pain in the ass if we're gonna have to feed you, because we don't have mirrored food. If it tastes like peppermint then everything's okay. Uh, I guess I shouldn't have told you in advance which is which, but hopefully that won't affect the outcome."
 
