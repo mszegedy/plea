@@ -2,7 +2,7 @@
 title: Chapter 2
 ---
 
-[**Previously**](/story/ch-1.html)
+[**Previously**](ch-1.html)
 
 <br />
 
