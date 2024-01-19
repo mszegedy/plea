@@ -297,4 +297,4 @@ The Moon-Mother watched them depart into the frozen night.
 
 <br />
 
-[**Next**](story/ch-2.html)
+[**Next**](ch-2.html)
