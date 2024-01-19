@@ -17,3 +17,27 @@ Most of the passengers were uncomfortable with even short two-person excursions 
 "Um. Are we driving on the wrong side of the road?" asked Sofia.
 
 "No, this car just has the steering wheel on the wrong side. It's an import," said Alexey from the passenger seat.
+
+"Yeah, that's… not what I mean. Shouldn't we be on the right?"
+
+"…aren't we? We are."
+
+"Oh… I guess it's a mirror thing. This side of the road looks like the left for me."
+
+Alexey pressed his hands into his face to relieve some stress. Okay, so Sofiya saw the world backwards. Or thought of it backwards. Did she also taste and smell it backwards? He thought of how he could test that. He would need…
+
+"I'll get you some peppermint to chew on," said Artemis, finishing Alexey's thought. "If it tastes like spearmint, you're mirrored relative to us, which is gonna be a pain in the ass if we're gonna have to feed you, because we don't have mirrored food. If it tastes like peppermint then everything's okay. Uh, I guess I shouldn't have told you in advance which is which, but hopefully that won't affect the outcome."
+
+"…I've never really been good at telling apart mint, but I'll try."
+
+"Well, it might taste more like caraway or dill anyway. Maybe I should get you one of those instead and see if it tastes like peppermint."
+
+"Deer. Three," said Tosha. They were visible on the side of the road, a ways up ahead. Artemis slowed down.
+
+The deer took this as a cue to cross the road, but, unusually, stopped in the middle, barricading the way forward in an almost military row formation.
+
+"Fuck," groaned Artemis. She honked. This stirred up some birds, but the deer remained in place, eyeing the car curiously.
+
+"Yeah, we don't have time for this," said Alexey. He got out of the car, and started waving both arms animatedly, approaching the deer. "Hey! Get the fuck out of the way! This is our road! Fuck off! Get lost!"
+
+The deer closest to him took a few steps in his direction, appeared to think for a moment, then lowered its horns and charged straight at him, knocking him onto the ice. His head bounced off a frozen puddle and put a dent in it. Alexey went limp.
