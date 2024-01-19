@@ -115,7 +115,7 @@ What—
 
 She sighed. "Make of it what you will. You know where to find me, as long as I live. My lawyers know where to find you, afterwards. I welcome you back, at Shchavel' House. I will be gone by winter. Know that I love you. I expected as much from you in return, but… I don't know. I must have done something wrong with you, I don't know what. But you're still the heir."
 
-Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. Her mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Pankratyevitch may not, in fact, have been too good for Ryzhaya internal politics.
+Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. His mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Pankratyevitch may not, in fact, have been too good for Ryzhaya internal politics.
 
 "Alexey Pankratyevitch?"
 
