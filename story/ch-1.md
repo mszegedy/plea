@@ -294,3 +294,7 @@ Twenty-three minutes and some frantic packing and yelling later the five of them
 "Got it. Let's roll," said Artemis.
 
 The Moon-Mother watched them depart into the frozen night.
+
+<br />
+
+[**Next**](story/ch-2.html)
