@@ -50,7 +50,7 @@ She was not sleeping. Vasilisa was frozen with anxiety. There was a fine line be
 
 "Augh, you _asshole!_ You know how long that's going to take to fix?" yelled Artemis.
 
-Sofia started crying. "I'm sorry, I'm so sorry…"
+Sofia started tearing up. "I'm sorry, I'm so sorry…"
 
 "What, no, Sofia, not you. I'm talking to the deer. Fuck _you,_ stupid animal," Artemis said, pointing at the deer for emphasis.
 
@@ -59,3 +59,23 @@ The deer metamorphosed into a man, who stood up. He had short, black hair, and t
 "My apologies, ▓▒▓▓▒░▒▓░ Ilyitch. It was an accident. I am only here to apprehend the Ryzhaya," he said to Artemis, in a tone of voice that was clearly trying to be suave but somewhat undercut by his quiet, reedy voice.
 
 "Wait, what? Artemis, do you know this idiot?" Vasilisa finally found the strength to speak.
+
+"…yeah. Hi, Nikolay Nikolaevitch. What do you want with my friend?"
+
+"The Sump has decreed that the time of the Ryzhayas is at an end, and the Keleykhsky council agrees. The whole town is looking for him. He is the only Ryzhaya left alive in Keleykh, now that we have executed his mother."
+
+Artemis had only met Alexey's mother once. She had seemed deceptively affable to her, but the effect she'd had on him, both in the moment and on the long term, was far more telling. She could not find it in her to care that Sofia Nikolaevna was gone. She wondered if Alexey would, unaware that he'd already heard the news from a different source.
+
+"Well… what makes you think you're going to be able to take him? I have a car. What do you have?"
+
+"We are Gvezdins. That, over there, the one with the short but very branched antlers, is my younger brother, Konstantin Nikolaevitch. The other one, with the darker grey coat, is my cousin Alexey Arkadyevitch. All three of us have the favor of the Sun-Mother. Should we ask for it, all the metal in your car will return to the stars it once came from."
+
+Artemis considered. Magic had only recently achieved widespread popularity in Keleykh, and the average person had, at best, a single idol-spirit to ask questions of and request assistance from, a power whose full implications had yet to be understood or taken advantage of by most people. Artemis and her friends didn't even have that, partly out of leftover habit from her and Alexey's time with the Sump, a powerful cult that heavily controlled the usage of spirits and people's relationships with them. Having the favor of a goddess was a nearly meaningless boast to her; the only religious person she'd ever known was Alexey, and the Moon-Mother had never seemed to do anything in return for his erstwhile devotion.
+
+"…okay? Try it, I guess," she said. "While you're doing that, I'll run you and your two guys over."
+
+"Wait."
+
+Sofia got out of the car, and put herself between Alexey and Nikolay Nikolaevitch.
+
+"Alexey is not the only Ryzhaya left in Keleykh," she said.
