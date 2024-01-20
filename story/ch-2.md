@@ -56,7 +56,7 @@ Sofia started tearing up. "I'm sorry, I'm so sorry…"
 
 The deer metamorphosed into a man, who stood up. He had short, black hair, and the aged, angular, sort of gaunt face where it was hard to tell if the dents were scars and formerly broken bones, or if they were natural contours. He wore an expensive-looking longcoat of black dyed cotton and brass buttons, and matching leather gloves and boots.
 
-"My apologies, ▓▒▓▓▒▒▓ Ilyitch. It was an accident. I am only here to apprehend the Ryzhaya," he said to Artemis, in a tone of voice that was clearly trying to be suave but was somewhat undercut by his quiet, reedy voice.
+"My apologies, ▓▒▓▓▒▒▓ Ilyitch. It was an accident. I am only here to apprehend the Ryzhaya," he said to Artemis, in a tone that was clearly trying to be suave but was somewhat undercut by his quiet, reedy voice.
 
 "Wait, what? Artemis, do you know this idiot?" Vasilisa finally found the strength to speak.
 
