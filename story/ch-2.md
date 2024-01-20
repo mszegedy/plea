@@ -4,8 +4,6 @@ title: Chapter 2
 
 [**Previously**](ch-1.html)
 
-<br />
-
 "Deer."
 
 While Keleykh's downtown enjoyed basic electric lighting, its hills had to make do with moonlight filtered through pine needles. Artemis's car brought a new and foreign element to the scene: piercing blue-white fluorescent headlights, imported from Japan. Aggressive, invasive predators situated in a much more delicate ecosystem than they had come from, their current victim was the terrified wild reindeer that Tosha had just pointed out.
@@ -43,3 +41,21 @@ The deer took this as a cue to cross the road, but, unusually, stopped in the mi
 "Yeah, we don't have time for this," said Alexey. He got out of the car, and started waving both arms animatedly, approaching the deer. "Hey! Get the fuck out of the way! This is our road! Fuck off! Get lost!"
 
 The deer closest to him took a few steps in his direction, appeared to think for a moment, then lowered its horns and charged straight at him, knocking him onto the ice. His head bounced off a frozen puddle and put a dent in it. Alexey went limp.
+
+"Shit, fuck! Vasilisa, you're on the right side to haul… are you _sleeping?_"
+
+She was not sleeping. Vasilisa was frozen with anxiety. There was a fine line between high-stress situations that put her into action, and high-stress situations that made her shut down. Ever since she'd gotten into the car, this one had been the latter.
+
+"I'll do it," said Sofia hurriedly. She climbed over Vasilisa and opened the lefthand back door, just in time to accidentally block another charge from the reindeer. Its horn shattered the window, and the deer tripped and fell over, lodged awkwardly into the window frame. Artemis, Sofia, and Tosha all yelped. Vasilisa sank into her seat.
+
+"Augh, you _asshole!_ You know how long that's going to take to fix?" yelled Artemis.
+
+Sofia started crying. "I'm sorry, I'm so sorry…"
+
+"What, no, Sofia, not you. I'm talking to the deer. Fuck _you,_ stupid animal," Artemis said, pointing at the deer for emphasis.
+
+The deer metamorphosed into a man, who stood up. He had short, black hair, and the aged, angular, sort of gaunt face where it was hard to tell if the dents were scars and formerly broken bones, or if they were natural contours. He wore an expensive-looking longcoat of black dyed cotton, and matching leather gloves and boots.
+
+"My apologies, ▓▒▓▓▒░▒▓░. It was an accident. I am only here to apprehend the Ryzhaya," he said to Artemis, in a tone of voice that was clearly trying to be suave but somewhat undercut by his quiet, reedy voice.
+
+"Wait, what? Artemis, do you know this idiot?" Vasilisa finally found the strength to speak.
