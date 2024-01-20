@@ -70,7 +70,7 @@ Artemis had only met Alexey's mother once. She had seemed deceptively affable to
 
 "We are Gvezdins. That, over there, the one with the short but very branched antlers, is my younger brother, Kostya. The other one, with the darker grey coat, is my cousin Alexey Arkadyevitch. All three of us have the favor of the Sun-Mother. Should we ask for it, all the metal in your car will return to the stars it once came from."
 
-Artemis considered. Magic had only recently achieved widespread popularity in Keleykh, and the average person had, at best, a single idol-spirit to ask questions of and request assistance from, a power whose full implications had yet to be understood or taken advantage of by most people. Artemis and her friends didn't even have that, partly out of leftover habit from her and Alexey's time with the Sump, a powerful cult that heavily controlled the usage of spirits and people's relationships with them. Having the favor of a goddess was a nearly meaningless boast to her; the only religious person she'd ever known was Alexey, and the Moon-Mother had never seemed to do anything in return for his erstwhile devotion. Hearing Nikolay Nikolaevitch's family name meant even less to her.
+Artemis considered. Magic had only recently achieved widespread popularity in Keleykh, and the average person had, at best, a single idol-spirit to ask questions of and request assistance from, a power whose full implications had yet to be understood or taken advantage of by most people. Artemis and her friends didn't even have that, partly out of leftover habit from her and Alexey's time with the Sump, a powerful cult that heavily controlled the usage of spirits and people's relationships with them. Having the favor of a goddess was a nearly meaningless boast to her; the only religious person she'd ever known was Alexey, and the Moon-Mother had never seemed to do anything in return for his erstwhile devotion. Hearing the Gvezdin family name meant even less to her, except that she knew they were important to the Sump.
 
 "…okay? Try it, I guess," she said. "While you're doing that, I'll run you and your two guys over."
 
@@ -78,4 +78,6 @@ Artemis considered. Magic had only recently achieved widespread popularity in Ke
 
 Sofia got out of the car, and put herself between Alexey and Nikolay Nikolaevitch.
 
-"Alexey is not the only Ryzhaya left in Keleykh," she said.
+"Alexey is not the only Ryzhaya left in Keleykh," she said, slamming the car door shut.
+
+Feeling more secure with all the car doors closed and unhindered, Artemis calculated the possible costs and benefits of just hitting the gas like she'd threatened. She couldn't see Alexey's body from where she sat, so she was wary of moving the car much, and she wasn't sure what Sofia was planning either. Was there some strange Ryzhaya magic she could pull? Or was she just providing a distraction? She slapped away a mosquito attempting to snack on her exposed wrist, between her jacket and gloves. As oversized an SUV as her car was, she doubted it could tank two entire adult reindeer to the grill, as well as a human. But her other option, flight, didn't seem appealing either, unless Sofia could nab Alexey and get back in the car. She felt that she could probably maneuver around her adversaries in that case.
