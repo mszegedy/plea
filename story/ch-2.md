@@ -132,7 +132,7 @@ Sofia grabbed the steering wheel and, after a moment of thought to consider chir
 
 Artemis slapped Sofia's hand away from the wheel, cursing her blindness for not noticing more quickly that someone was trying to interfere with _her_ driving. "You— y— I'll drive, just talk, you lunatic!"
 
-"Left left _now now now!_ For real this time!"
+"Left left _now now now!_"
 
 Artemis patiently pumped the brakes, and took as hard a left as she felt comfortable with given her estimated speed and the road conditions. There was a huge crash as the right side of the vehicle was violently bumped up onto the curb. Tosha yelped, Sofia screamed, Artemis gritted her teeth, Vasilisa closed her eyes, and Alexey awoke.
 
