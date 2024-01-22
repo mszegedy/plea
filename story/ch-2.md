@@ -192,7 +192,7 @@ All of a sudden, the blindness spell ceased.
 
 "So let me see if… AUGH"
 
-Everyone, even Alexey, reflexively yelped when Artemis turned the ignition. The headlights had come on.
+Everyone, even Alexey and Vasilisa, reflexively yelped when Artemis turned the ignition. The headlights had come on.
 
 "God*dammit* I hate having eyes again," moaned Artemis. "Oh that's horrible. Okay, I think I'm adjusting. Okay, I'm good. I guess we got out of the Gvezdins', uh… area."
 
