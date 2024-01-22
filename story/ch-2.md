@@ -106,7 +106,7 @@ His two allies reverted to human form to start swatting away mosquitos around th
 
 Nikolay Nikolaevitch turned to them. "No, you guys, it's just a Ryzhaya thing. Don't bother, I'm about to waste her if she doesn't cut it out."
 
-"Easy for you to say. You have _hands,_" said Alexey Arkadyevitch, in husky bass. "What's more intimidating, a human swatting mosquitos? Or a reindeer pacing around and shaking its head and body?"
+"Easy for you to say. You have _hands,_" said Alexey Arkadyevitch, in somewhat hoarse bass. "What's more intimidating, a human standing in place and swatting mosquitos? Or a reindeer pacing around and shaking its head and body like a fool?"
 
 Nikolay Nikolaevitch groaned. "Fine, whatever. We can handle her either way. Sofia, why don't you come with us, to the Sump? We'll get to the bottom of who you are. If you don't come with us, then… well, we don't have explicit orders to kill you, but I don't think anyone would complain, other than your friends, of course."
 
