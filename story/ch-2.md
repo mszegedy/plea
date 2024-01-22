@@ -90,9 +90,9 @@ He started coughing, and bent over and held up a finger. His brother and cousin 
 
 "No," said Sofia. "I'm not. I am _Sofia_ Pankratyevna. You were led to believe that Alexey is the heir to the Ryzhaya line, yes? He isn't. Did you really think the heir would be a _boy?_"
 
-Nikolay Nikolaevitch, finished with his coughing fit, replied, "Sorry about that. A bug flew right into my windpipe. Anyways: Sofia Nikolaevna's will is of public record, and the city council seemed to be of the opinion that it clearly named Alexey as the beneficiary of the title to the Ryzhaya estate, however extraordinary it may seem. So–" He swatted away a mosquito buzzing around his face. "So, unless Alexey is already dead, and he isn't, he's right there and I can _see_ his breath, no, you're not the heir. Could you maybe ask ▓▒▓▓▓▓▒ Ilyitch to turn the lights down? I feel like I'm swimming in midges and mosquitos here." He swatted the air around his face some more.
+Nikolay Nikolaevitch, finished with his coughing fit, replied, "Sorry about that. A bug flew right into my windpipe. Anyways: Sofia Nikolaevna's will is of public record, and the city council seemed to be of the opinion that it clearly named Alexey Pankratyevitch as the beneficiary of the title to the Ryzhaya estate, however extraordinary it may seem. So–" He swatted away a mosquito buzzing around his face. "So, unless Alexey Pankratyevitch is already dead, and he isn't, he's right there and I can _see_ his breath, no, you're not the heir. Could you maybe ask ▓▒▓▓▓▓▒ Ilyitch to turn the lights down? I feel like I'm swimming in midges and mosquitos here." He swatted the air around his face some more.
 
-"Her name, as I understand it, is Artemis Ilyinichna. How much, exactly, do you know about the Ryzhayas?" asked Sofia.
+"Her name, as I understand it, is Artemis Ilyinitchna. How much, exactly, do you know about the Ryzhayas?" asked Sofia.
 
 Artemis stared at Sofia. She was having trouble reconciling this commanding figure with the girl she'd made burst into tears just a minute ago. She also wished Sofia hadn't brought her identity into it. Why did cis people always seem to think that it was an argument they could win? Even as… herself, Artemis had trouble defending herself. She had no faith in Sofia's ability to do so, and whatever happened, Nikolay Nikolaevitch would say a lot of hurtful things that Artemis would rather not hear. The best thing she could hope for was that he would just ignore Sofia's clarification.
 
@@ -108,7 +108,7 @@ Nikolay Nikolaevitch turned to them. "No, you guys, it's just a Ryzhaya thing. D
 
 "Easy for you to say. You have _hands,_" said Alexey Arkadyevitch, in somewhat hoarse bass. "What's more intimidating, a human standing in place and swatting mosquitos? Or a reindeer pacing around and shaking its head and body like a fool?"
 
-Nikolay Nikolaevitch groaned. "Fine, whatever. We can handle her either way. Sofia, why don't you come with us, to the Sump? We'll get to the bottom of who you are. If you don't come with us, then… well, we don't have explicit orders to kill you, but I don't think anyone would complain, other than your friends, of course."
+Nikolay Nikolaevitch groaned. "Fine, whatever. We can handle her either way. Sofia Pankratyevna, why don't you come with us, to the Sump? We'll get to the bottom of who you are. If you don't come with us, then… well, we don't have explicit orders to kill you, but I don't think anyone would complain, other than your friends, of course."
 
 Sofia opened up the car's rear side door and started hauling Alexey inside. A surprised Vasilisa and Tosha quickly finished the job. Sofia shut the door on them, remaining outside.
 
