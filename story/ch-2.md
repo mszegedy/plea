@@ -84,12 +84,20 @@ Feeling more secure with all the car's doors closed and unhindered, Artemis calc
 
 "You are going to have to explain yourself," said Nikolay Nikolaevitch. "Are you perhaps Anna Pankratyevna? You seem a little old, —"
 
+<!-- His next word was going to be "but". -->
+
 He started coughing, and bent over and held up a finger. His brother and cousin looked on in mild concern, but did not break form.
 
 "No," said Sofia. "I'm not. I am _Sofia_ Pankratyevna. You were led to believe that Alexey is the heir to the Ryzhaya line, yes? He isn't. Did you really think the heir would be a _boy?_"
 
-Nikolay Nikolaevitch, finished with his coughing fit, replied, "Sorry about that. A bug flew right into my throat. Anyways: Sofia Nikolaevna's will is of public record, and the city council seemed to be of the opinion that it clearly named Alexey as the beneficiary of the title to the Ryzhaya estate, however extraordinary it may seem. So–" He swatted away a mosquito buzzing around his face. "So, unless Alexey is already dead, and he isn't, he's right there and I can _see_ his breath, no, you're not the heir. Could you maybe ask ▓▒▓▓▓▓▒ Ilyitch to turn the lights down? I feel like I'm swimming in midges and mosquitos here." He swatted the air around his face some more.
+Nikolay Nikolaevitch, finished with his coughing fit, replied, "Sorry about that. A bug flew right into my windpipe. Anyways: Sofia Nikolaevna's will is of public record, and the city council seemed to be of the opinion that it clearly named Alexey as the beneficiary of the title to the Ryzhaya estate, however extraordinary it may seem. So–" He swatted away a mosquito buzzing around his face. "So, unless Alexey is already dead, and he isn't, he's right there and I can _see_ his breath, no, you're not the heir. Could you maybe ask ▓▒▓▓▓▓▒ Ilyitch to turn the lights down? I feel like I'm swimming in midges and mosquitos here." He swatted the air around his face some more.
 
-"How much, exactly, do you know about the Ryzhayas?" asked Sofia.
+"Her name, as I understand it, is Artemis Ilyinichna. How much, exactly, do you know about the Ryzhayas?" asked Sofia.
 
-Artemis stared at Sofia. She was having trouble reconciling this commanding figure with the girl she'd made burst into tears just a minute ago.
+Artemis stared at Sofia. She was having trouble reconciling this commanding figure with the girl she'd made burst into tears just a minute ago. She also wished Sofia hadn't brought her identity into it. Why did cis people always seem to think that it was an argument they could win? Even as… herself, Artemis had trouble defending herself. She had no faith in Sofia's ability to do so, and whatever happened, Nikolay Nikolaevitch would say a lot of hurtful things that Artemis would rather not hear. The best thing she could hope for was that he would just ignore Sofia's clarification.
+
+"I know… enough… not to _trust_ you, please, can we seriously turn the lights off? I swear, it's October, there shouldn't be this many mosquitos around at this time of the year. I'm trying to be nice, here, but if you won't do it for me, I'll do it for you. …no, I'm not going to wait, I'll just do it." He closed a hand into a fist, and the lights shut off, as did the car's engine. Artemis's eyes widened. Her only plan of escape had just been cut off.
+
+Sofia continued the dialogue as if nothing had happened. "It wasn't the lights. And if you are surprised by the mosquitos, then you will be surprised by this, too: as a Ryzhaya, they are my _friends._ Maybe if you let them drink a little of your blood, they'd be your friends, too. Wouldn't that be nice? Come on. Share a little. Don't you want a gossipy network of friends all around the world? It doesn't cost much."
+
+Nikolay Nikolaevitch straightened up. "Ah, I see." He paused either for effect or to sneak an unobstructed breath in. "I thought you trafficked in abominations, disease spirits, and mythical monsters, not… pests. If this is all you can do to intimidate me, then… color me… goddammit… unimpressed. Unimpressed, but _very_ annoyed."
