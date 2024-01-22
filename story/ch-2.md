@@ -194,7 +194,7 @@ All of a sudden, the blindness spell ceased.
 
 Everyone, even Alexey, reflexively yelped when Artemis turned the ignition. The headlights had come on.
 
-"God*dammit* I hate having eyes again. Oh that's horrible. Okay, I think I'm adjusting. Okay, I'm good. I guess we got out of the Gvezdins', uh… area."
+"God*dammit* I hate having eyes again," moaned Artemis. "Oh that's horrible. Okay, I think I'm adjusting. Okay, I'm good. I guess we got out of the Gvezdins', uh… area."
 
 Sofia was struck with the inexplicable urge to softly rub Artemis on the head, like she would a dog or a reindeer. She decided that this would be diplomatically unwise. Artemis did not give the impression of someone who liked being touched.
 
