@@ -112,10 +112,92 @@ Nikolay Nikolaevitch groaned. "Fine, whatever. We can handle her either way. Sof
 
 Sofia opened up the car's rear side door and started hauling Alexey inside. A surprised Vasilisa and Tosha quickly finished the job. Sofia shut the door on them, remaining outside.
 
-"Now, see, that's not the reaction I wanted from you. I'll make this quick, then." Nikolay Nikolaevitch closed his hand into a fist again. Sofia and her friends, already struggling to see in the moonlight, went blind.
+"Now, see, that's not the reaction I wanted from you. I'll make this quick, then." Nikolay Nikolaevitch closed his hand into a fist again. Sofia and her friends, already struggling to see in the moonlight, were struck blind.
 
 Sofia shouted, "Artemis! I'll push the car! You make it roll!"
 
 "What NO—"
 
-Sofia started running to the back of the car and slipped on the ice, unknowingly dodging a strike from Nikolay Nikolaevitch with a knife. Meanwhile, Artemis begrudgingly put the car in neutral. The hill wasn't steep enough that the car would start moving on its own, but Sofia could conceivably get it moving, and their destination _was_ downhill. However, the roads were also very twisted, and Artemis did not have them the least bit memorized. At least it would be a good few hundred meters before that mattered… at which point the car would likely become wrapped around a tree.
+Sofia started running to the back of the car and slipped on the ice, unknowingly dodging a strike from Nikolay Nikolaevitch with a knife. Meanwhile, Artemis begrudgingly put the car in neutral. The hill wasn't steep enough that the car would start moving on its own, but Sofia could conceivably get it moving, and their destination _was_ downhill. However, the roads were also very twisted, and Artemis did not have them the least bit memorized. At least it would be a good kilometer or so before that mattered… at which point the car would likely become wrapped around a tree. Had she thought about it, Artemis would have supposed that between that and capture by the Gvezdins, she prefersed the latter, but time pressure was never conducive to intelligent decision-making. Then again…
+
+Sofia scrambled to the back of the car, and gave it the biggest shove she could. It started rolling remarkably easily, and she stepped up to stand on the bumper. She blindly kicked once behind her, which turned out to be a huge mistake, as one of the Gvezdins (she couldn't tell who) caught her leg. Fortunately, the weight and speed of the rolling car pitted Sofia's grip on it against the man's grip on her, and the man decisively lost the struggle, falling over onto the icy bricks.
+
+The next few seconds found Sofia opening the trunk door, squirming her way to the front of the car, and—
+
+"MAKE A RIGHT HURRY HURRY!"
+
+Artemis was astonished. "Did you—"
+
+Sofia grabbed the steering wheel and, after a moment of thought to consider chirality, wrenched it to the right in the fashion of someone who had no idea how to drive an SUV. The car briefly stood on its left two wheels, then miraculously fell back down to a quadrupedal stance. The trunk door slammed shut from inertia.
+
+Artemis slapped Sofia's hand away from the wheel, cursing her blindness for not noticing more quickly that someone was trying to interfere with _her_ driving. "You— y— I'll drive, just talk, you lunatic!"
+
+"Left left _now now now!_ For real this time!"
+
+Artemis patiently pumped the brakes, and took as hard a left as she felt comfortable with given her estimated speed and the road conditions. There was a huge crash as the right side of the vehicle was violently bumped up onto the curb. Tosha yelped, Sofia screamed, Artemis gritted her teeth, Vasilisa closed her eyes, and Alexey awoke.
+
+"What? Artemis, what the hell? Why—"
+
+"KIND OF IN THE MIDDLE OF SOMETHING HERE, ALYOSHA. PLEASE SHUT UP."
+
+"But, why are we on—"
+
+"Wait! Oh my god! Alyosha, can you _see?_"
+
+"What? Yes, of course—"
+
+“Here, you drive! The car's in neutral but—"
+
+"I have no fucking idea how to drive, Temmie!"
+
+"Just turn the steering wheel and pump the brakes when you turn!"
+
+"_Where are the brakes?_"
+
+"EVERYBODY SHUT UP," Sofia interrupted. "Artemis, just get off the curb and you'll be fine. This road continues straight on forward until we literally hit the sea."
+
+Artemis took the car off the curb, but she wasn't finished. (Tosha, who had been quietly chanting, "Curb. Curb. Curb," finally knew peace.) "Okay, Sofia, tell me: how the _hell_ do you know any of this? Do your little 'friends' tell you? Or…?"
+
+Sofia became her more natural, shy self again. "No… I just have it memorized."
+
+"_…why?_"
+
+"Well… my mom made me learn it. I could draw a map of Keleykh from memory. She made me walk down every street in the city, several times. It took years. I must have drawn, I don't know, a hundred maps."
+
+"…why."
+
+Sofia was silent for a bit, and then said, "I think this is why."
+
+Vasilisa piped up. "If you're from Mirror Keleykh, did you have to reverse the map in your head before giving directions?"
+
+"No… your map is backwards, yes, but your names for the directions were also  backwards," said Sofia. "I just had to change which direction I turned the steering wheel."
+
+"Which I'm _never letting you do again_ until I can give you a proper driving course," said Artemis.
+
+"Fair," admitted Sofia.
+
+"So… I wasn't _completely_ unconscious, and I did hear most of what went on," said Alexey. "…didn't know you guys went fucking blind though. But… you fought the Gvezdins?"
+
+"Yeah. Nikolay Nikolaevitch was there," said Artemis.
+
+"I know."
+
+Artemis shrugged. "Sorry. Anyway, he's still an asshole, is what I gathered."
+
+All of a sudden, the blindness spell ceased.
+
+"Oh… neat. My eyes are back," said Artemis.
+
+"Mine too," agreed Sofia and Tosha in turn.
+
+"So let me see if… AUGH"
+
+Everyone, even Alexey, reflexively yelped when Artemis turned the ignition. The headlights had come on.
+
+"God*dammit* I hate having eyes again. Oh that's horrible. Okay, I think I'm adjusting. Okay, I'm good. I guess we got out of the Gvezdins', uh… area."
+
+Sofia was struck with the inexplicable urge to softly rub Artemis on the head, like she would a dog or a reindeer. She decided that this would be diplomatically unwise. Artemis did not give the impression of someone who liked being touched.
+
+"So, uh, Alexey… you think you can direct me to the house now?"
+
+"…yeah. I can."
