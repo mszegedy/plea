@@ -110,7 +110,7 @@ Nikolay Nikolaevitch turned to them. "No, you guys, it's just a Ryzhaya thing. D
 
 Nikolay Nikolaevitch groaned. "Fine, whatever. We can handle her either way. Sofia, why don't you come with us, to the Sump? We'll get to the bottom of who you are. If you don't come with us, then… well, we don't have explicit orders to kill you, but I don't think anyone would complain, other than your friends, of course."
 
-Sofia opened up the car's rear door and started hauling Alexey inside. A surprised Vasilisa and Tosha quickly finished the job. Sofia shut the door on them, remaining outside.
+Sofia opened up the car's rear side door and started hauling Alexey inside. A surprised Vasilisa and Tosha quickly finished the job. Sofia shut the door on them, remaining outside.
 
 "Now, see, that's not the reaction I wanted from you. I'll make this quick, then." Nikolay Nikolaevitch closed his hand into a fist again. Sofia and her friends, already struggling to see in the moonlight, went blind.
 
