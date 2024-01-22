@@ -96,8 +96,26 @@ Nikolay Nikolaevitch, finished with his coughing fit, replied, "Sorry about that
 
 Artemis stared at Sofia. She was having trouble reconciling this commanding figure with the girl she'd made burst into tears just a minute ago. She also wished Sofia hadn't brought her identity into it. Why did cis people always seem to think that it was an argument they could win? Even as… herself, Artemis had trouble defending herself. She had no faith in Sofia's ability to do so, and whatever happened, Nikolay Nikolaevitch would say a lot of hurtful things that Artemis would rather not hear. The best thing she could hope for was that he would just ignore Sofia's clarification.
 
-"I know… enough… not to _trust_ you, please, can we seriously turn the lights off? I swear, it's October, there shouldn't be this many mosquitos around at this time of the year. I'm trying to be nice, here, but if you won't do it for me, I'll do it for you. …no, I'm not going to wait, I'll just do it." He closed a hand into a fist, and the lights shut off, as did the car's engine. Artemis's eyes widened. Her only plan of escape had just been cut off.
+"I know… enough… not to _trust_ you, please, can we seriously turn the lights off? I swear, it's October, there shouldn't be this many mosquitos around at this time of the year. I'm trying to be nice, here, but if you won't do it for me, I'll do it for you. …no, I'm not going to wait, I'll just do it." He closed a hand into a fist, and the lights shut off, as did the car's engine. Artemis's eyes widened. Her only plan of escape had just been cut off. She turned the ignition key back and forth. The engine wouldn't come back on.
 
-Sofia continued the dialogue as if nothing had happened. "It wasn't the lights. And if you are surprised by the mosquitos, then you will be surprised by this, too: as a Ryzhaya, they are my _friends._ Maybe if you let them drink a little of your blood, they'd be your friends, too. Wouldn't that be nice? Come on. Share a little. Don't you want a gossipy network of friends all around the world? It doesn't cost much."
+Sofia continued the dialogue as if nothing had happened. "It wasn't the lights. And if you are surprised by the mosquitos, then you will be surprised by this, too: as a Ryzhaya, they are my _friends._ Maybe if you let them drink a little of your blood, they'd be your friends, too. Wouldn't that be nice? Come on. Share a little. Don't you want a gossipy network of tiny friends all around the world? It doesn't cost much."
 
 Nikolay Nikolaevitch straightened up. "Ah, I see." He paused either for effect or to sneak an unobstructed breath in. "I thought you trafficked in abominations, disease spirits, and mythical monsters, not… pests. If this is all you can do to intimidate me, then… color me… goddammit… unimpressed. Unimpressed, but _very_ annoyed."
+
+His two allies reverted to human form to start swatting away mosquitos around their own selves. "Hi," said Kostya awkwardly. "Hello," said Alexey Arkadyevitch.
+
+Nikolay Nikolaevitch turned to them. "No, you guys, it's just a Ryzhaya thing. Don't bother, I'm about to waste her if she doesn't cut it out."
+
+"Easy for you to say. You have _hands,_" said Alexey Arkadyevitch. "What's more intimidating, a human swatting mosquitos? Or a reindeer pacing around and shaking its head and body?"
+
+Nikolay Nikolaevitch groaned. "Fine, whatever. We can handle her either way. Sofia, why don't you come with us, to the Sump? We'll get to the bottom of who you are. If you don't come with us, then… well, we don't have explicit orders to kill you, but I don't think anyone would complain, other than your friends of course."
+
+Sofia opened up the car's rear door and started hauling Alexey inside. A surprised Vasilisa and Tosha quickly brought him inside. Sofia shut the door on them, remaining outside.
+
+"Now, see, that's not the reaction I wanted from you. I'll make this quick, then." Nikolay Nikolaevitch closed his hand into a fist again. Sofia and her friends, already struggling to see in the moonlight, went blind.
+
+Sofia shouted, "Artemis! I'll push the car! You make it roll!"
+
+"What NO—"
+
+Sofia started running to the back of the car and slipped on the ice, unknowingly dodging a strike from Nikolay Nikolaevitch. Meanwhile, Artemis begrudgingly put the car in neutral. The hill wasn't steep enough that the car would start moving on its own, but Sofia could conceivably get it moving, and their destination _was_ downhill. However, the roads were also very twisted, and Artemis did not have them the least bit memorized. At least it would be a good few hundred meters before that mattered… at which point the car would likely become wrapped around a tree.
