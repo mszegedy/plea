@@ -56,7 +56,7 @@ Sofia started tearing up. "I'm sorry, I'm so sorry…"
 
 The deer metamorphosed into a man, who stood up. He had short, black hair, and the aged, angular, sort of gaunt face where it was hard to tell if the dents were scars and formerly broken bones, or if they were natural contours. He wore an expensive-looking longcoat of black dyed cotton and brass buttons, and matching leather gloves and boots.
 
-"My apologies, ▓▒▓▓▒▒▓ Ilyitch. It was an accident. I am only here to apprehend the Ryzhaya," he said to Artemis, in a tone that was clearly trying to be suave but was somewhat undercut by his quiet, reedy voice.
+"My apologies, ▓▒▓▓▓▓▒ Ilyitch. It was an accident. I am only here to apprehend the Ryzhaya," he said to Artemis, in a tone that was clearly trying to be suave but was somewhat undercut by his quiet, reedy voice.
 
 "Wait, what? Artemis, do you know this idiot?" Vasilisa finally found the strength to speak.
 
@@ -76,8 +76,20 @@ Artemis considered. Magic had only recently achieved widespread popularity in Ke
 
 "Wait."
 
-Sofia got out of the car, and put herself between Alexey and Nikolay Nikolaevitch.
+Sofia got out of the car, shutting the door behind her, and put herself between Alexey and Nikolay Nikolaevitch.
 
-"Alexey is not the only Ryzhaya left in Keleykh," she said, slamming the car door shut.
+"Alexey is not the only Ryzhaya left in Keleykh," she said.
 
-Feeling more secure with all the car doors closed and unhindered, Artemis calculated the possible costs and benefits of just hitting the gas like she'd threatened. She couldn't see Alexey's body from where she sat, so she was wary of moving the car much, and she wasn't sure what Sofia was planning either. Was there some strange Ryzhaya magic she could pull? Or was she just providing a distraction? She slapped away a mosquito attempting to snack on her exposed left wrist, between her jacket and gloves. As oversized an SUV as her car was, she doubted it could tank two entire adult reindeer to the grill, as well as a human. But her other option, flight, didn't seem appealing either, unless Sofia could nab Alexey and get back in the car. She felt that she could probably maneuver around her adversaries in that case.
+Feeling more secure with all the car's doors closed and unhindered, Artemis calculated the possible costs and benefits of just hitting the gas like she'd threatened. She couldn't see Alexey's body from where she sat, so she was wary of moving the car much, and she wasn't sure what Sofia was planning either. Was there some strange Ryzhaya magic she could pull? Or was she just providing a distraction? She slapped away a mosquito attempting to snack on her exposed left wrist, between her jacket and gloves. As oversized an SUV as her car was, she doubted it could tank two entire adult reindeer to the grill, as well as a human. But her other option, flight, didn't seem appealing either, unless Sofia could nab Alexey and get back in the car. She felt that she could probably maneuver around her adversaries in that case.
+
+"You are going to have to explain yourself," said Nikolay Nikolaevitch. "Are you perhaps Anna Pankratyevna? You seem a little old, —"
+
+He started coughing, and bent over and held up a finger. His brother and cousin looked on in mild concern, but did not break form.
+
+"No," said Sofia. "I'm not. I am _Sofia_ Pankratyevna. You were led to believe that Alexey is the heir to the Ryzhaya line, yes? He isn't. Did you really think the heir would be a _boy?_"
+
+Nikolay Nikolaevitch, finished with his coughing fit, replied, "Sorry about that. A bug flew right into my throat. Anyways: Sofia Nikolaevna's will is of public record, and the city council seemed to be of the opinion that it clearly named Alexey as the beneficiary of the title to the Ryzhaya estate, however extraordinary it may seem. So–" He swatted away a mosquito buzzing around his face. "So, unless Alexey is already dead, and he isn't, he's right there and I can _see_ his breath, no, you're not the heir. Could you maybe ask ▓▒▓▓▓▓▒ Ilyitch to turn the lights down? I feel like I'm swimming in midges and mosquitos here." He swatted the air around his face some more.
+
+"How much, exactly, do you know about the Ryzhayas?" asked Sofia.
+
+Artemis stared at Sofia. She was having trouble reconciling this commanding figure with the girl she'd made burst into tears just a minute ago.
