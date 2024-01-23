@@ -154,7 +154,7 @@ Artemis patiently pumped the brakes, and took as hard a left as she felt comfort
 
 "_Where are the brakes?_"
 
-"EVERYBODY SHUT UP," Sofia interrupted. "Artemis, just get off the curb and you'll be fine. This road continues straight on forward until we literally hit the sea."
+"_EVERYBODY_ shut up," Sofia interrupted. "Artemis, just get off the curb and you'll be fine. This road continues straight on forward until we literally hit the sea."
 
 Artemis took the car off the curb, but she wasn't finished. (Tosha, who had been quietly chanting, "Curb. Curb. Curb," finally knew peace.) "Okay, Sofia, tell me: how the _hell_ do you know any of this? Do your little 'friends' tell you? Or…?"
 
