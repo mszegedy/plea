@@ -99,7 +99,7 @@ Alexey had heard this one before.
 
 "You're _not. Dying._ Four years and you haven't moved on! Four years and you're doing the same routine on me! I thought you were supposed to be _good_ at this. How did I ever fall for it?"
 
-"…believe what you want. Don't come to my funeral, then, and regret it for the _rest_ of your short life. Die sad and die alone, because you didn't even have enough love to give your mother. Here's what I came to tell you, then: you're in my will. You get Shchavel' House, and the riches that come with it. _Provided_ you live long enough to claim it. You are the heir to the Ryzhaya name."
+"…believe what you want. Don't come to my funeral, then, and regret it for the _rest_ of your short life. Die sad and die alone, because you didn't even have enough love to give your mother. Here's what I came to tell you, then: you're in my will. You get Shchavel House, and the riches that come with it. _Provided_ you live long enough to claim it. You are the heir to the Ryzhaya name."
 
 Alexey paused. This was new. And it was a serious change in her attitude towards him, to entrust him with such an important legacy. Except…
 
@@ -113,7 +113,7 @@ His mother crushed his thought process into a wreck with a new surprise.
 
 What—
 
-She sighed. "Make of it what you will. You know where to find me, as long as I live. My lawyers know where to find you, afterwards. I welcome you back, at Shchavel' House. I will be gone by winter. Know that I love you. I expected as much from you in return, but… I don't know. I must have done something wrong with you, I don't know what. But you're still the heir."
+She sighed. "Make of it what you will. You know where to find me, as long as I live. My lawyers know where to find you, afterwards. I welcome you back, at Shchavel House. I will be gone by winter. Know that I love you. I expected as much from you in return, but… I don't know. I must have done something wrong with you, I don't know what. But you're still the heir."
 
 Alexey barely even noticed her disappear through the door. He was still trying to figure out what any of this meant. His mother was trying to exert _some_ kind of pressure on him, or otherwise draw him back into her control, but if it wasn't about his body, then…? Alexey Pankratyevitch may not, in fact, have been too good for Ryzhaya internal politics.
 
@@ -219,7 +219,7 @@ Alexey cracked a smile for the first time since waking up. While it would have o
 
 "Reindeer tripe," replied Artemis and Vasilisa simultaneously.
 
-Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel' House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._
+Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._
 
 ---
 
@@ -251,7 +251,7 @@ The lucidity was quickly coming to him, dream-reasoning replaced with an altoget
 
 "No, wait. What? Sofia, who _are_ you? My twin sister? What are you doing in my mirror?"
 
-"I'm you, from a different timeline or something, I don't know. Please, you _have_ to get to Shchavel' House, or they'll find you."
+"I'm you, from a different timeline or something, I don't know. Please, you _have_ to get to Shchavel House, or they'll find you."
 
 Dozens of objections collided in Alexey's mind, and only one won egress from his mouth:
 
@@ -259,7 +259,7 @@ Dozens of objections collided in Alexey's mind, and only one won egress from his
 
 "Alexey, are you even _listening_ to me?"
 
-"Sofia, who's coming to find me? This is very important. Can I take a car? Do I have to go to Shchavel' House, or can I go… literally anywhere else?"
+"Sofia, who's coming to find me? This is very important. Can I take a car? Do I have to go to Shchavel House, or can I go… literally anywhere else?"
 
 "I don't know, I don't know any other safe places and I don't know what kind of monsters are coming to get you. I don't know! They killed Mom like an hour ago and they're going to kill you too!"
 
