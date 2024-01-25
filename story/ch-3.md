@@ -40,13 +40,13 @@ Still somewhat hurt and not wanting to acknowledge any merit to Tosha's position
 
 "There's no malaria in Keleykh," said Alexey. "But just for you, if you do somehow get a bloodborne disease, my family has ways of exorcising it. In fact, we _want_ to meet as many disease spirits as possible. We can use them to protect ourselves. The reason nobody with two brain cells ever goes near this house is there's, like, a hundred of them already bound up in idols and stuff here."
 
-"So, then, that puts our collective brain cells at either one or zero," said Vasilisa. "I guess I'll just… shut up and get bitten. Yay for me."
+"So, then, we've all got, what, either one brain cell or zero brain cells?" said Vasilisa. "I guess I'll just… shut up and get bitten. Sorry guys, can't talk, busy sharing my blood."
 
 "Am I supposed to just get used to the itching, or what?" asked Artemis.
 
 "Yes, you get used to it," assured Sofia.
 
-"You absolutely do _not_ get used to the itching, that's _such_ a bald-faced lie," said Alexey. "But your body sort of reacts less over time. I don't think my mother's bites were even inflamed anymore."
+"Bullshit, you absolutely do _not_ get used to the itching, that's _such_ a bald-faced lie," said Alexey. "But your body sort of reacts less over time. I don't think my mother's bites were even inflamed anymore."
 
 "Well, whatever. So, anyone got a key?" asked Artemis.
 
