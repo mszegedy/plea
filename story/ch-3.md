@@ -34,7 +34,7 @@ Still somewhat hurt and not wanting to acknowledge any merit to Tosha's position
 
 "Mosquitos don't—" started both Alexey and Artemis. "Sorry, go ahead," said Artemis.
 
-"Mosquitos don't spread HIV," said Alexey. "Malaria, yes. Dengue, yes. West Nile, also yes. But not HIV. It doesn't spread into their spit, and the spit is what can infect you."
+"Mosquitos don't spread HIV," said Alexey. "Malaria, yes. Dengue, yes. West Nile, also yes. But not HIV. It doesn't spread into their spit, and the spit is what gets into your blood."
 
 "…so what if I get malaria?" insisted Vasilisa.
 
