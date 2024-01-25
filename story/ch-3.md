@@ -46,7 +46,7 @@ Still somewhat hurt and not wanting to acknowledge any merit to Tosha's position
 
 "Yes, you get used to it," assured Sofia.
 
-"You absolutely do _not_ get used to the itching, that's _such_ a bald-faced lie," said Alexey. "But your body sort of reacts less over time. I don't think my mother's bites even inflamed anymore."
+"You absolutely do _not_ get used to the itching, that's _such_ a bald-faced lie," said Alexey. "But your body sort of reacts less over time. I don't think my mother's bites were even inflamed anymore."
 
 "Well, whatever. So, anyone got a key?" asked Artemis.
 
