@@ -54,7 +54,7 @@ Still somewhat hurt and not wanting to acknowledge any merit to Tosha's position
 
 Alexey groaned. "Oh, goddammit. I'll go look around for a mirror so we can reverse it."
 
-Sofia strode over to the door Tosha was fumbling with, and unlocked it in one, practiced motion.
+Sofia strode over to the door Tosha was fumbling with, and unlocked it in one practiced motion.
 
 "Correction: Mom gave me _two_ keys," said Sofia. "Mirror images of each other."
 
