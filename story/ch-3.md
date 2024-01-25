@@ -8,7 +8,7 @@ The five kids stared at the newly reopened trunk of the car.
 
 "So. Um. Yeah," clarified Artemis.
 
-A boom resounded in the distance, the calling card of the Siberian Miners' Industrial Union, better known as "Sibgorprom". Perhaps they were dealing with an abomination, as per usual. But perhaps…
+A boom resounded in the distance, the calling card of the Siberian Miners' Industrial Union, better known as Sibgorprom. Perhaps they were dealing with an abomination, as per usual. But perhaps…
 
 "Fire," said Tosha. He pointed at the hills, in the exact direction of their former residence, at a bright flare of orange.
 
