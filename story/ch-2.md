@@ -130,7 +130,7 @@ Artemis was astonished. "Did you—"
 
 <!-- She was going to ask whether Sofia left the trunk open, although she could see it easily in the rearview mirror. The car's trunk was packed with their bags, which will come up in the next chapter, because those bags totally didn't make it, except for Tosha's and Artemis's. -->
 
-Sofia grabbed the steering wheel and, after a moment of thought to consider chirality, wrenched it to the right in the fashion of someone who had no idea how to drive an SUV. The car briefly stood on its left two wheels, then miraculously fell back down to a quadrupedal stance. The trunk door slammed shut from inertia.
+Sofia grabbed the steering wheel and, after a split second of thought to consider chirality, wrenched it to the right in the fashion of someone who had no idea how to drive an SUV. There was screeching, screaming, and yelling. The car briefly stood on its left two wheels, then miraculously fell back down to a quadrupedal stance. The trunk door slammed shut from inertia.
 
 Artemis slapped Sofia's hand away from the wheel, cursing her blindness for not noticing more quickly that someone was trying to interfere with _her_ driving. "You— y— I'll drive, just talk, you lunatic!"
 
@@ -203,3 +203,7 @@ Sofia was struck with the inexplicable urge to softly rub Artemis on the head, l
 "So, uh, Alexey… you think you can direct me to the house now?"
 
 "…yeah. I can."
+
+<br />
+
+[**Next**](ch-3.html)
