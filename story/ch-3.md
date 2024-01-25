@@ -48,6 +48,8 @@ Still somewhat hurt and not wanting to acknowledge any merit to Tosha's position
 
 "Bullshit, you absolutely do _not_ get used to the itching, that's _such_ a bald-faced lie," said Alexey. "But your body sort of reacts less over time. I don't think my mother's bites were even inflamed anymore."
 
+"Says Alexey Pankratyevitch _Balandin_," said Sofia with a slight smile.
+
 "Well, whatever. So, anyone got a key?" asked Artemis.
 
 "Mom gave me one," said Sofia.
