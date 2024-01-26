@@ -114,7 +114,9 @@ There was a short silence.
 
 "Okay, hold on, I need to go check on Tosha. He needs help, too."
 
-Sofia bumped into Alexey and Artemis on the way up.
+---
+
+Sofia bumped into Alexey and Artemis on the way back.
 
 "Tosha and Vasilisa both need help packing," Sofia explained to Alexey. "Hello, you must be Artemis? I'm Sofia Pankratyevna Ryzhaya, pleased to meet you."
 
