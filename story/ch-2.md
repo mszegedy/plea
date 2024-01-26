@@ -18,11 +18,11 @@ Sofia walked over to Tosha's room, and opened the door.
 
 Some words drifted up from Tosha's mattress. "I'm awake."
 
-"Oh. Um. Hi. I'm Sofia Pankratyevna Ryzhaya. Alexey's… twin sister. Pleased to meet you, sir."
+"Oh. Um. Hi. I'm Sofia Pankratyevna Ryzhaya. Alexey's… twin sister. Pleased to meet you, sir. You are… Anton?"
 
 Tosha did not keep track of Alexey's family tree. Alexey might have had a twin sister for all they knew.
 
-"H'lo. Pleased to meet you. Did you make the big noise that woke me up?"
+"H'lo. Pleased to meet you. Just Tosha, not Anton. Did you make the big noise that woke me up?"
 
 "Yeah. Sorry."
 
