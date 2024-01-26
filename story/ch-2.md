@@ -134,7 +134,7 @@ Sofia bumped into Alexey and Artemis on the way back.
 
 The two of them departed in opposite ways, leaving Sofia to awkwardly shuffle over to the common area. She decided to prepare the storm kettle for transportation while she waited.
 
-A muffled voice came from the bathroom. "Oh my _God!_"
+A muffled voice came from the bathroom. "Oh my _god!_"
 
 ---
 
