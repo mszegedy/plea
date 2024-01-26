@@ -32,7 +32,7 @@ Tosha shrugged. He rolled back over and closed his eyes.
 
 They got back up and frowned. "Why?"
 
-Sofia struggled to come up with a summary for what she saw as an infinitely complicated political situation with at least twenty dimensions of depth. "Alexey and I… there's lots of people who hate us because we're Ryzhayas. They want to kill us, and anyone who's friends with us. Even if Alexey and I leave, they might kidnap you to use against Alexey. Or just kill you. We have a safe place. Could you please, please come with us?"
+Sofia struggled to come up with a summary for what she saw as an infinitely complicated political situation with more dimensions of depth than she could count. "Alexey and I… there's lots of people who hate us because we're Ryzhayas. They want to kill us, and anyone who's friends with us. Even if Alexey and I leave, they might kidnap you to use against Alexey. Or just kill you. We have a safe place. Could you please, please come with us?"
 
 Tosha rubbed his eyes. "Can you help me pack? Never packed on my own before." It then occurred to them that they were, in fact, not comfortable letting a stranger near their belongings. "Never mind. Please just get one of my friends for me. To help."
 
