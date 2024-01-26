@@ -4,6 +4,138 @@ title: Chapter 2
 
 [**Previously**](ch-1.html)
 
+During the first of those twenty-three minutes, Alexey had gone back to his room and gotten dressed.
+
+"Wake Vasilisa and Tosha, in those rooms," he instructed, pointing. "I'll wake Artemis in a sec."
+
+"…right, okay," said Sofia. "They're both okay with being woken by a stranger?"
+
+"I dunno. Introduce yourself."
+
+"Great."
+
+Sofia walked over to Tosha's room, and opened the door.
+
+Some words drifted up from Tosha's mattress. "I'm awake."
+
+"Oh. Um. Hi. I'm Sofia Pankratyevna Ryzhaya. Alexey's… twin sister. Pleased to meet you, sir."
+
+Tosha did not keep track of Alexey's family tree. Alexey might have had a twin sister for all they knew.
+
+"H'lo. Pleased to meet you. Did you make the big noise that woke me up?"
+
+"Yeah. Sorry."
+
+Tosha shrugged. He rolled back over and closed his eyes.
+
+"No, wait, T— Tosha. You need to pack up and leave. Really quickly."
+
+They got back up and frowned. "Why?"
+
+Sofia struggled to come up with a summary for what she saw as an infinitely complicated political situation with at least twenty dimensions of depth. "Alexey and I… there's lots of people who hate us because we're Ryzhayas. They want to kill us, and anyone who's friends with us. Even if Alexey and I leave, they might kidnap you to use against Alexey. Or just kill you. We have a safe place. Could you please, please come with us?"
+
+Tosha rubbed his eyes. "Can you help me pack? Never packed on my own before." It then occurred to them that they were, in fact, not comfortable letting a stranger near their belongings. "Never mind. Please just get one of my friends for me. To help."
+
+Sofia nodded. "On it."
+
+---
+
+Meanwhile, a newly dried and clothed Alexey barged into Artemis's room.
+
+"Temmie. Temmie!"
+
+Artemis had perfected the art of falling asleep while holding a pillow on top of her head, to muffle any sounds that might disturb her. She was historically an extraordinarily light sleeper, but in the present day, her medications sowed doubt in the hearts of onlookers of a sleeping Artemis that she was even alive.
+
+"_Temmie!_" Alexey poked her.
+
+Artemis instantly stood all the way up on her matress, in some sleepy approximation of a fighting stance, and immediately slipped on a pillow and fell onto her side, on the hard wooden floor.
+
+"Holy shit, Temmie! Are you okay?" asked Alexey. Some part of him did appreciate the odd slapstick routine he'd just witnessed, and supposed that through a combination of PTSD and drugs, anything was possible.
+
+"No, Alyosha, I'm _not._ What the fuck?"
+
+"You weren't waking up!"
+
+"Why do you need me awake at all?"
+
+"Pack your things and start the car. We need to leave _now._"
+
+"Oh. Oh my god. How? Who is it? Did they—"
+
+"I don't know, I don't know, I don't know. Could be nothing. But my interdimensional twin sister appeared in a mirror to tell me that they're gonna kill us, and—"
+
+"Wait, what?"
+
+"Look, Artemis, _everyone_ has to leave this house _as soon as possible._ They're not just looking for two losers who escaped from a cult, they're looking for _Ryzhayas._ This is a _shaman war._"
+
+Artemis knew just enough about shamans, magic, and the reputation of the Ryzhayas to be the appropriate amount of both credulous and terrified.
+
+"…okay. I'll get Tosha, you get Vasilisa."
+
+"Actually, my sister's already on that."
+
+Then the yelling started.
+
+---
+
+Emboldened by how smoothly her first cold call had gone, Sofia went to go knock on the door to Vasilisa's room, forgetting her urgency for a moment as she replayed the successful social interaction in her head and imagined how this new one might go.
+
+Hearing no response, she opened the door to find a naked Vasilisa sitting up in bed. They both froze for a moment. Then Sofia promptly slammed the door shut, aghast at herself.
+
+"Sorry! I'm so sorry! I'm sorry! I just need to deliver an urgent message!"
+
+"Who the _fuck_ are you?" responded Vasilisa angrily from behind the door.
+
+"I don't know! Wait, sorry, I do know! I'm Sofia Pankratyevna Ryzhaya, Alexey's sister! Pleased to meet you, Miss Vasilisa."
+
+"I don't care, get the fuck away from me!"
+
+"_You're going to die!_"
+
+There was a short silence.
+
+"…that a threat?" responded Vasilisa with icy caution, yet daring to hope that this stranger might care for her well-being.
+
+"No, there's um, people hunting me and Alexey, and they might kidnap or kill you if they find you. Please _please_ come with us. We're going to a safe place. Pack as fast as you can."
+
+"…I suck at packing." The last bits of vigor were slowly evaporating from Vasilisa as the seriousness of the situation hit her, replacing her blood with limp slush.
+
+"Medication if you have it. Toothbrush. Clothes and makeup. Personal items. In that order," recited Sofia from memory.
+
+"…okay."
+
+"We need to be gone in, like, ten minutes."
+
+"Okay."
+
+"Do you want me to pack for you?"
+
+"Okay."
+
+"Okay, hold on, I need to go check on Tosha. He needs help, too."
+
+Sofia bumped into Alexey and Artemis on the way up.
+
+"Tosha and Vasilisa both need help packing," Sofia explained to Alexey. "Hello, you must be Artemis? I'm Sofia Pankratyevna Ryzhaya, pleased to meet you."
+
+"Nice to meet you and yeah you've got my name right," said Artemis hurriedly. "Alexey, I'll do Tosha and you do Vasilisa?"
+
+"I'll do Tosha. You get everyone's stuff from the bathroom, and also please stop the sink's pipe from flooding everything if you know how."
+
+"…what?"
+
+"I… broke the sink."
+
+"_How?_"
+
+"Go!"
+
+The two of them departed in opposite ways, leaving Sofia to awkwardly shuffle over to the common area. She decided to prepare the storm kettle for transportation while she waited.
+
+A muffled voice came from the bathroom. "Oh my _God!_"
+
+---
+
 "Deer."
 
 While Keleykh's downtown enjoyed basic electric lighting, its hills had to make do with moonlight filtered through pine needles. Artemis's car brought a new and foreign element to the scene: piercing blue-white fluorescent headlights, imported from Japan. Aggressive, invasive predators situated in a much more delicate ecosystem than they had come from, their current victim was the terrified wild reindeer that Tosha had just pointed out.
@@ -20,7 +152,7 @@ Most of the passengers were uncomfortable with even short two-person excursions 
 
 "…aren't we? We are."
 
-"Oh… I guess it's a mirror thing. This side of the road looks like the left for me."
+"Oh… I guess it's a mirror thing. This side of the road looks like the left for me. I'm, um, from inside a mirror," she explained for the benefit of Alexey's friends, who hadn't seen her stagger out of the bathroom mirror in a shower of metallic shards. None of them immediately volunteered a question.
 
 Alexey pressed his hands into his face to relieve some stress, and recoiled. They smelled of blood. Breaking the mirror had been heroic, but dangerous.
 
