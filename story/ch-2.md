@@ -180,7 +180,7 @@ The deer closest to him took a few steps in his direction, appeared to think for
 
 "Shit, fuck! Vasilisa, you're on the right side to haul… are you _sleeping?_"
 
-She was not sleeping. Vasilisa was frozen with anxiety. There was a fine line between high-stress situations that put her into action, and high-stress situations that made her shut down. Ever since she'd gotten into the car, this one had been the latter.
+She was not sleeping. Vasilisa was frozen with anxiety. There was a fine line between high-stress situations that put her into action, and high-stress situations that made her shut down. Getting into the car had piled the stress high enough that she couldn't even control her eyelids.
 
 "I'll do it," said Sofia hurriedly. She climbed over Vasilisa and opened the lefthand back door, just in time to accidentally block another charge from the reindeer. Its horn shattered the window, and the deer tripped and fell over, lodged awkwardly into the window frame. Artemis, Sofia, and Tosha all yelped. Vasilisa sank into her seat.
 
