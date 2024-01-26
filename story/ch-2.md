@@ -60,6 +60,8 @@ Artemis instantly stood all the way up on her matress, in some sleepy approximat
 
 "Pack your things and start the car. We need to leave _now._"
 
+It was as if Artemis's nightmare hadn't been interrupted at all. She did not need more elaboration for her panic to start unfolding.
+
 "Oh. Oh my god. How? Who is it? Did they—"
 
 "I don't know, I don't know, I don't know. Could be nothing. But my interdimensional twin sister appeared in a mirror to tell me that they're gonna kill us, and—"
