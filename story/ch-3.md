@@ -96,7 +96,7 @@ Sofia gave a weak smile. "Yeah, same. That's exactly what I mean. I want to show
 
 "Yeah. Okay. You get the hearth, then. Which room do you want?"
 
-"Third room on the left of the third floor."
+"Third room on the left of the second floor."
 
 "Seriously? You still want our old room? I figured you'd want to move into our… into Mom's room."
 
@@ -130,4 +130,4 @@ Sofia smiled. "We can arrange that."
 
 Alexey, who'd been ruminating during the discussion, spoke. "I'm sorry, Sofia. Thank you for sharing. You don't have to talk about it again, if you don't want to. How about we all get our minds off it by doing all that stuff we said we were gonna do around the house?"
 
-There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the hearth, oil lamp in hand, while Alexey led the rest of the gang upstairs to the third-floor guest rooms, armed with a box of matches.
+There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the ground-floor hearth, oil lamp in hand. (A house this big did not have merely a single hearth, after all, and Sofia's intent was to light all four.) Meanwhile, Alexey led the rest of the gang upstairs to the second floor guest rooms, armed with a box of matches.
