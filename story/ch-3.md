@@ -109,3 +109,25 @@ Sofia didn't move a muscle, but her eyes suddenly seemed far more distant. "Not 
 "I'm afraid to ask, but… how do you know?" asked Artemis.
 
 "I was there."
+
+An uncomfortable silence followed. After enough of it had elapsed, Tosha decided that as the one least sensitive to social tension, they should be the one to break it.
+
+"I'm really sorry to hear that," he said. "That sounds traumatic."
+
+"…how did you escape?" asked Vasilisa.
+
+"My mom turned me into a lemming earlier that day, and put me in her coat pocket," explained Sofia. “I was in the pocket the whole time. By the time I came out, her body was abandoned on the sea ice, in the Kingdom of the Dead. The wind carried her voice, and told me where to find Alexey. I ran home across the ice, turned back into a human, and sought him out."
+
+The three non-Ryzhayas looked at each other. No element of this story was grounded in the common reality they'd been living in their whole lives. Not even Artemis had heard of magic like this outside of folktales, for all her apprenticeship under the man who billed himself as Keleykh's most powerful shaman. She supposed she'd never gotten deep enough into the Sump.
+
+"What was it like, being a lemming?" asked Vasilisa.
+
+"Scary," said Sofia. "I think lemmings naturally assume they're in a fox's mouth, if they're in a tight, warm space against a larger mammal's body. The whole time I was ready to escape the moment I thought it was safe. I ended up chewing my way out."
+
+"Oh," said Vasilisa, "I was hoping it would have been more fun. I've always wanted to try being an animal."
+
+Sofia smiled. "We can arrange that."
+
+Alexey, who'd been ruminating during the discussion, spoke. "I'm sorry, Sofia. Thank you for sharing. You don't have to talk about it again, if you don't want to. How about we all get our minds off it by doing all that stuff we said we were gonna do around the house?"
+
+There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the hearth, while Alexey led the rest of the gang upstairs to the third-floor guest rooms.
