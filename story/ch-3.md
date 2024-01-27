@@ -104,7 +104,7 @@ Sofia gave a weak smile. "Yeah, same. That's exactly what I mean. I want to show
 
 Vasilisa couldn't hold the question in for any longer. "Uh, speaking of creepy stuff. Is your… is your mom still here? I mean, her body?"
 
-Sofia didn't move a muscle, but her eyes suddenly seemed far more distant. "Not a chance. The murderers couldn't have set foot within half a kilometer of this place. She was captured downtown, taken to the seashore, and executed."
+Sofia didn't move a muscle, but her eyes suddenly seemed far more distant. "Not a chance. The murderers couldn't have set foot within half a kilometer of this place. She was captured downtown, taken to the seashore, and executed. Her body was taken out to the sea ice, on a sledge, and left there."
 
 "I'm afraid to ask, but… how do you know?" asked Artemis.
 
