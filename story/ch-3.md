@@ -130,4 +130,4 @@ Sofia smiled. "We can arrange that."
 
 Alexey, who'd been ruminating during the discussion, spoke. "I'm sorry, Sofia. Thank you for sharing. You don't have to talk about it again, if you don't want to. How about we all get our minds off it by doing all that stuff we said we were gonna do around the house?"
 
-There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the hearth, while Alexey led the rest of the gang upstairs to the third-floor guest rooms.
+There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the hearth, oil lamp in hand, while Alexey led the rest of the gang upstairs to the third-floor guest rooms, armed with a box of matches.
