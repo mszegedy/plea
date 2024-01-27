@@ -122,7 +122,7 @@ The three non-Ryzhayas looked at each other. No element of this story was ground
 
 "What was it like, being a lemming?" asked Vasilisa.
 
-"Scary," said Sofia. "I think lemmings naturally assume they're in a fox's mouth, if they're in a tight, warm space against a larger mammal's body. The whole time I was ready to escape the moment I thought it was safe. I ended up chewing my way out."
+"Scary," said Sofia. "I think lemmings naturally assume they're in a fox's mouth, if they're in a tight, warm space against a larger mammal's body. The whole time, I was ready to escape the moment I thought it was safe. I ended up chewing my way out."
 
 "Oh," said Vasilisa, "I was hoping it would have been more fun. I've always wanted to try being an animal."
 
