@@ -60,9 +60,9 @@ Sofia strode over to the door Tosha was fumbling with, and unlocked it in one pr
 
 "Correction: Mom gave me _two_ keys," said Sofia. "Mirror images of each other."
 
-"Okay, Alexey, I'm sorry about your childhood, but that's _fucking_ awesome," said Vasilisa.
+"Okay, Alexey, I'm sorry about your childhood, but that's _fucking_ awesome," said Vasilisa, walking inside.
 
-"Oh, yeah," grumbled Alexey while lighting an oil lamp, "Making a _reversed key_ is so fucking cool. Not like just anyone can do that."
+"Oh, yeah," grumbled Alexey while trying to find the oil lamp immediately inside the doorway, "Making a _reversed key_ is so fucking cool. Not like just anyone can do that."
 
 "Considering how much Sibgorprom hates us, I wonder how our family even got the metal for any of this," observed Sofia. "Maybe we have less notoriety in Norilsk?"
 
