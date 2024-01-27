@@ -62,14 +62,50 @@ Sofia strode over to the door Tosha was fumbling with, and unlocked it in one pr
 
 "Okay, Alexey, I'm sorry about your childhood, but that's _fucking_ awesome," said Vasilisa, walking inside.
 
-"Oh, yeah," grumbled Alexey while trying to find the oil lamp immediately inside the doorway, "Making a _reversed key_ is so fucking cool. Not like just anyone can do that."
+"Oh, yeah," grumbled Alexey while trying to find the oil lamp he knew should be on the table immediately inside the doorway, "Making a _reversed key_ is so fucking cool. Not like just anyone can do that."
 
 "Considering how much Sibgorprom hates us, I wonder how our family even got the metal for any of this," observed Sofia. "Maybe we have less notoriety in Norilsk?"
 
-"You're going to have to catch us up on all the Ryzhaya lore over the next few days," said Artemis. "Most of what I know about Alexey's family I learned from the Sump, and I sure as hell don't trust that. You seem to be a little more, um… at peace… with your childhood than Alexey is."
+"You're going to have to catch us up on all the Ryzhaya lore over the next few days," said Artemis, as Alexey lit the oil lamp. "Most of what I know about Alexey's family I learned from the Sump, and I sure as hell don't trust that. You seem to be a little more, um… at peace… with your childhood than Alexey is."
 
 Vasilisa was quickly running out of rail blocks at which to house her trains of thought, and feared that a collision was imminent. On the one hand, she was moving into a vast, new, and scary house, which she had dozens of comments on and questions about. Such as: _Boy, you weren't kidding, Alexey, there sure are a lot of idols here._ Or: why was the house's hearth cold, if Sofia Nikolaevna had been inhabiting it only hours prior? For that matter, where was her body, or the site of her murder? This second concern crossed over into a separate matter, namely that she was starting to feel very out of her depth regarding her place in the web of loose alliances that comprised Keleykh's magical underworld. Who exactly were the five of them now at war with? What were they capable of? Normally, she would be fascinated to hear the answers to these questions, but faced with the fact that they comprised a list of people who would probably gladly see her and her friends dead, she felt understandably more somber about the topic than usual. And on another, entirely different hand, there was the thought she'd been holding her breath to deliver since Sofia brought it up:
 
 "Norilsk probably doesn't care about Ryzhayas because they eat abominations and disease spirits for _breakfast,_" she blurted out. "I still dunno how they built it but there's no way they moved that much earth without just not caring about all the random stuff they freed."
 
-It was one of Vasilisa's favorite subjects to give long lectures on. Norilsk was a miracle of modern engineering, so much so that there were numerous conspiracy theories (which Vasilisa kept abreast of but did not credit) regarding how it had actually been accomplished. Technically, "Norilsk" was metonymic for the 400 kilometer-wide Putorana Crater, a plateau that had been carved out of the surrounding mountains by forces scarcely within human comprehension. Directly at the crater's center sat the city of Norilsk, which directed strip mining operations on scales such that their yields could supply all of Russia and then some with earth, sand, metals, and dimension stone, obviating the need for mining elsewhere, and etching cryptic dents in the crater that would have registered to any sane geologist as scars left in volcanic traps by glaciers, rather than the work of humans. The resulting lowlands were home to more than a few lakes and forests, whose seemingly paradoxical age fuelled rich debate on their origin among armchair scholars who had never so much as set foot in Siberia. A perhaps more reasonable source of doubt in that field was Sibgorprom's strict ban on mining elsewhere in Siberia, which while nominally to prevent the unearthing of more abominations, was routinely accused of being motivated by a desire to protect Norilsk's monopoly on mining, to unknown or controversial ends. Vasilisa, on her part, just longed to visit the crater's edge one day, to see where sheer vertical facets had been hewn out of mountains, cutting them in half, visceral proof of some higher power's hand.
+It was one of Vasilisa's favorite subjects to give long lectures on. Norilsk was a miracle of modern engineering, so much so that there were numerous conspiracy theories (which Vasilisa kept abreast of but did not credit) regarding how it had actually been accomplished. Technically, "Norilsk" was metonymic for the 400 kilometer-wide Putorana Crater, a plateau that had been carved out of the surrounding Peykovy Mountains by forces scarcely within human comprehension. Directly at the crater's center sat the city of Norilsk, which directed strip mining operations on scales such that their yields could supply all of Russia and then some with earth, sand, metals, and dimension stone, obviating the need for mining elsewhere, and etching cryptic dents in the crater that would have registered to any sane geologist as scars left in volcanic traps by glaciers, rather than the work of humans. The resulting lowlands were home to more than a few lakes and forests, whose seemingly paradoxical age fuelled rich debate on their origin among armchair scholars who had never so much as set foot in Siberia. A perhaps more reasonable source of doubt in that field was Sibgorprom's strict ban on mining elsewhere in Siberia, which while nominally to prevent the unearthing of more abominations, was routinely accused of being motivated by a desire to protect Norilsk's monopoly on mining, to unknown or controversial ends. Vasilisa, on her part, just longed to visit the crater's edge one day, to see where sheer vertical facets had been hewn out of mountains, cutting them in half, visceral proof of some higher power's hand.
+
+All this and so much more was on the tip of her tongue, but she managed to hold it in so that she could take in the scenery instead. From the outside, Shchavel House was a large box that could have been mistaken for a small hotel or hospital, with elaborate concrete paneling forming stripes of multiple primary colors, and three storeys of windows, capped off by gently sloping, ruby red roof tiles. But seeing it from the inside was an altogether different matter.
+
+"Is the _entire house_ a library?" wondered Artemis aloud. "_How_ has this house not burnt down yet? No offense, Alyosha, but if I hated everything your family stood for and wanted to destroy everything you had, it would take me a can of kerosene and about five minutes. I can't see a _single_ wall that isn't covered in books and idols."
+
+Sofia grinned. "If you actually tried that, the first spirit you came across here would skin you alive. Then, another would turn all your fat into lichen, and your muscles into mushrooms. Then we'd use your kerosene to light our lamps, and feed you to our reindeer."
+
+Disturbed, Artemis shot back, "You don't _have_ reindeer. What kind of super-rich family doesn't even have reindeer?"
+
+"Okay, guys, cool it," said Alexey. "First thing's first. We light the hearth. We're all cold and tired, and I don't think Sofia even dried off after the broken sink got her wet. We can go over… Ryzhaya lore… and whatever after we're all situated. Sofia: Tosha and I are going to light the hearth. In the meantime, could you please show Artemis and Vasilisa where they can stay? And light all the lamps along the way."
+
+"It's _my_ house. _I'll_ light the hearth. You can show everyone to their rooms."
+
+Alexey ground his teeth. "It's _our_ house. And legally, it's _my_ house, and if you have _any_ plans to take it away from me and my friends, I'm afraid you won't be able to. Even the guys who want us dead agree. It's mine."
+
+Sofia shifted a bit, uncomfortable. "Okay, okay… I'm sorry. I didn't mean it that way. I don't want you to think I'm you or your friends' enemy, and I definitely don't want to take the house, or the Ryzhaya fortune, for that matter, away from you. It's just that I was told my whole life I'd get to be the heiress, and I'd get to light the hearth. It's important to me. I want to light it because I want to show everyone that they're welcome in my home, and that I… want them to feel alright. Want them alive."
+
+Alexey was silent for a bit. "One of my parents' favorite insults was that I'm a waste of firewood. Especially my mother. She said that all the time when she felt like I wasn't being useful enough to her."
+
+Sofia gave a weak smile. "Yeah, same. That's exactly what I mean. I want to show your friends that they're not at all a waste of firewood."
+
+"Yeah. Okay. You get the hearth, then. Which room do you want?"
+
+"Third room on the left of the third floor."
+
+"Seriously? You still want our old room? I figured you'd want to move into our… into Mom's room."
+
+"No way. I'd have to de-Mom it first. Who knows what creepy stuff she kept in there?"
+
+Vasilisa couldn't hold the question in for any longer. "Uh, speaking of creepy stuff. Is your… is your mom still here? I mean, her body?"
+
+Sofia didn't move a muscle, but her eyes suddenly seemed far more distant. "Not a chance. The murderers couldn't have set foot within half a kilometer of this place. She was captured downtown, taken to the seashore, and executed."
+
+"I'm afraid to ask, but… how do you know?" asked Artemis.
+
+"I was there."
