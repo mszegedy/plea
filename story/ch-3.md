@@ -126,7 +126,7 @@ The three non-Ryzhayas looked at each other. No element of this story was ground
 
 "Scary," said Sofia. "I think lemmings naturally assume they're in a fox's mouth, if they're in a tight, warm space against a larger mammal's body. The whole time, I was ready to escape the moment I thought it was safe. I ended up chewing my way out."
 
-"Oh," said Vasilisa, "I was hoping it would have been more fun." (_Oh my god,_ stop _talking!_ she thought.) "I've always wanted to try being an animal." (_Vasilisa, you are an idiot._)
+"Oh," said Vasilisa, "I was hoping it would have been more fun." She then realized what she'd just said. "I mean, um, before your mom got m— I mean, sorry, obviously 'fun' isn't—" (_Stop talking!_ she screamed at herself in her brain.) "I mean, I've always wanted to try being an animal." (_Vasilisa, you are an idiot._)
 
 Sofia, despite everything, smiled. "We can arrange that."
 
