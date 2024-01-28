@@ -116,7 +116,7 @@ An uncomfortable silence followed. After enough of it had elapsed, Tosha decided
 
 "…how did you escape?" asked Vasilisa.
 
-"My mom turned me into a lemming earlier yesterday, and put me in her coat pocket," explained Sofia. “I was in the pocket the whole time. By the time I came out, her body was abandoned on the sea ice, in the Kingdom of the Dead. The wind carried her voice, and told me where to find Alexey. I ran home across the ice, turned back into a human, and sought him out."
+"My mom turned me into a lemming earlier yesterday, and put me in her coat pocket," explained Sofia. “I was in the pocket the whole time. Even when they… when they shot her in the head, right next to me. By the time I came out, her body was abandoned on the sea ice, in the Kingdom of the Dead. The wind carried her voice, and told me where to find Alexey. I ran home across the ice, turned back into a human, and sought him out."
 
 The three non-Ryzhayas looked at each other. No element of this story was grounded in the common reality they'd been living in their whole lives. Not even Artemis had heard of magic like this outside of folktales, for all her apprenticeship under the man who billed himself as Keleykh's most powerful shaman. She supposed she'd never gotten deep enough into the Sump.
 
