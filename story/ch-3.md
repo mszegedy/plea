@@ -130,6 +130,6 @@ The three non-Ryzhayas looked at each other. No element of this story was ground
 
 Sofia, despite everything, smiled. "We can arrange that."
 
-Alexey, who'd been ruminating during the discussion and cataloguing the different sorts of smiles his sister seemed to use to communicate her emotions, finally spoke. "I'm sorry, Sofia. Thank you for sharing. You don't have to talk about it again, if you don't want to. How about we all get our minds off it by doing all that stuff we said we were gonna do around the house? The sooner we light the hearth and find our rooms, the sooner we can all go to bead."
+Alexey, who'd been ruminating during the discussion and cataloguing the different sorts of smiles his sister seemed to use to communicate her emotions, finally spoke. "I'm sorry, Sofia. Thank you for sharing. You don't have to talk about it again, if you don't want to. How about we all get our minds off it by doing all that stuff we said we were gonna do around the house? The sooner we light the hearth and find our rooms, the sooner we can all go to bed."
 
 There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the ground-floor hearth, oil lamp in hand. (A house this big did not have merely a single hearth, after all, and Sofia's intent was to light all four.) Meanwhile, Alexey led the rest of the gang upstairs to the second floor guest rooms, armed with a box of matches.
