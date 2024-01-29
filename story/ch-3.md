@@ -134,6 +134,8 @@ Alexey, who'd been ruminating during the discussion and cataloguing the differen
 
 There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the ground-floor hearth, oil lamp in hand. (A house this big did not have merely a single hearth, after all, and Sofia's intent was to light all four.) Meanwhile, Alexey led the rest of the gang upstairs to the second floor guest rooms, armed with a box of matches.
 
+---
+
 Sofia sat down in front of the fireplace. She shoveled some of the ash out of it and into a large green jar to the side, blown in the shape of a tunicate akin to the matchbox house's lost storm kettle, and many other jar-shaped apparatuses in the city besides. It was simply the local style. Next, she placed fresh, dry logs on the fire, in fairly plentiful supply in Shchavel House. Finally, she steeled herself for the part she couldn't help but hate: lighting the kindling using the lamp. She rolled some spare newspapers from a nearby pile into a tight cylinder, opened the door of the lamp, and lit the cylinder's end on fire, watching it curl and turn into scraps. Now it was up to the whim of the Fire-Mother whether—
 
 A stray scrap of lit paper escaped, blown harmlessly onto the reindeer skin lying in front of the hearth. There was a noise of rushing wind. A sudden audible pounding entered Sofia's head, and her vision became a blizzard of grey. She collapsed on the floor, dizzy. Breathing seemed to make it worse, so she stopped breathing…
@@ -151,3 +153,93 @@ Sofia felt a little more ambivalent about it, considering that, apart from the h
 Sofia grabbed the matchbox and brought it over. She made a neat nest of paper kindling in the fireplace, and tucked a lit match into it. She stayed a little to watch the fire grow, making sure that the firewood all properly caught alight. Then, understandably and through no fault of her own, she fell asleep on the reindeer skin.
 
 ---
+
+Alexey led the group to the second floor, up an elegant, zig-zagging staircase. Shchavel House was built at a time when the most prized wood in Siberia was a strange sort of pine heartwood impregnated with resin, a local attempt to replicate the properties of aloeswood by more modest and readily available means, so all the most prominent wooden fixtures in the house smelled pleasant, had a red tinge, and were pliable without being creaky, but were ever so slightly and disconcertingly sticky despite (or perhaps because of) the liberal application of varnish. Neither Tosha nor Vasilisa were fans of this, and one failed attempt to slide their hands up the railing as they ascended convinced them both to keep their hands to themselves unless they could place them on cloth, fur, or metal instead.
+
+Alexey, to his credit, noticed the issue immediately, and responded, "Yeah, the railing is kinda sticky. I think my mom was thinking of getting it replaced with brass. I guess I could look into that, if we're really gonna be staying here long-term. But, I dunno, maybe there's better things to use the money for. I haven't really thought about what I'm gonna do with the money yet. Obviously, 'cause, you know."
+
+When Alexey got tired, he got chattier. He likened it to being drunk, and supposed that it said something deep about how mentally taxing his everyday inhibitions must be. But the late hour was just beginning to hit Tosha and Vasilisa again, and they were much the opposite. Vasilisa managed a meek nod, and Tosha didn't acknowledge the long-winded comment at all. They were both already imagining crawling under multiple layers of heavy covers.
+
+Artemis, meanwhile, didn't seem to be affected by the pull of the dream realm at all. Alexey secretly hypothesized that Artemis did not, in fact, have a sleep cycle of any kind, and was able to defer sleep whenever it was convenient to her.
+
+"Hey, guys. Can I ask a question?" she asked, with the self-awareness to note that this phrasing would make everyone steel themselves for a question they'd really rather not hear at the moment, but without the inspiration to be more tactful.
+
+"Okay," said Tosha. Alexey just sighed.
+
+"Now that we're out of her earshot since the first time we met her, what do you all think of Sofia?"
+
+"She's cool," replied Vasilisa somewhat numbly. "I thought Alexey's family sucked. But Sofia doesn't suck." She yawned. "Prob'ly 'cause she's, like, Mirror Alexey. Alexey's cool, so Sofia's cool."
+
+"You weren't even a little creeped out by her?"
+
+"…no?"
+
+"Objection," said Alexey dryly, "Leading the witness."
+
+"I don't know what to think of her yet," volunteered Tosha. "She saved Alexey. I think. And us,  kinda. She's kind of scary? But most people are scary. You have to make friends with them before they stop."
+
+"Honestly, I'm just relieved you guys didn't bring the 'just transition already' joke back," said Alexey. "Literally my first thought when seeing her was, god _dammit,_ I'm never gonna hear the end of this."
+
+"…is that what you think of us?" asked Artemis, a little hurt.
+
+"No," said Alexey. "When was the last time I ever worried about something reasonable? And not deeply, insultingly dumb?"
+
+"Hah, okay," said Artemis. "Well, I guess on my part, I don't really trust her yet. But she seems nice. And some ridiculous part of me thinks she needs me to protect her. Her! A Ryzhaya! She could melt my bones, or whatever it is she said."
+
+"For the record?" said Alexey, "I don't think she could. I sincerely mean it. A hundred spirits and nightmares aren't as powerful as one Artemis Metchnikov."
+
+"Right," said Artemis. "I have a _car._"
+
+The whole group burst into giggles at that. It was a better end to the night than they'd planned.
+
+"Anyway, here's the guest rooms," said Alexey, gesturing at the doors in the hallway they'd been idling in for the past few minutes. "There's actually only three spares, so either me and Tosha are gonna have to share, or I'll have to move into my mo— mother's room. Mother fuck, I can't believe Sofia's already rubbing off on me. I've _never_ called her 'Mom' before."
+
+Artemis held up her right hand. "Witnessed."
+
+"Anyway… yeah. Tosha, are you okay sharing a room?"
+
+Tosha shifted, very visibly uncomfortable. "…yeah."
+
+"…I'm not sure I've ever seen you lie before. Wow. I guess I'm taking my mother's room. Sorry, Tosha, I didn't mean to put you on the spot. I just can't really share a room with the girls."
+
+"Me and Artemis could share a room, I guess?" said Vasilisa.
+
+"No," said Alexey, as Artemis simultaneously said, "Wow, no."
+
+"No offense, Vasilisa, I just need my personal space," continued Artemis.
+
+Vasilisa shrugged in response.
+
+"Okay, so…" began Alexey as he opened one of the doors. "Um. Oh."
+
+The four kids stared not at the impressive mock-aloeswood poster bed with three layers of covers, nor at the full body-sized standing mirror with an elaborate white-gold trim detailed in traditional Uralic square-grid patterns, nor at the somewhat out of place red and green Persian rug, but at Alexey's breath. It came out in crystals that sparkled in the firelight.
+
+"I guess we can't sleep here tonight," said Alexey. "Dammit, I should have remembered. I don't think the second floor hearth was lit even when my mother stayed here. Nobody was staying here, so it would've been a waste of firewood. This floor hasn't been warm all winter."
+
+"…wanna go see how Sofia's doing with that fire downstairs?" asked Artemis.
+
+"Yeah," said Alexey, to nods from Tosha and Vasilisa.
+
+The kids wearily shuffled back downstairs to the grand living room (which exceeded an entire matchbox house in size), only to find Sofia lying on her side on the skin in front of the fire.
+
+"…fair," said Artemis.
+
+"Will the fire burn out at night?" asked Tosha.
+
+"Nah, there's a disease spirit that keeps it from burning out. I think a chronic pain spirit," said Alexey.
+
+"Oh. Makes sense."
+
+"Probably not the way you're thinking. The guy it came from was a lumberjack. He got it from hauling lumber."
+
+"Oh. Ohhh, I see. Right. If you didn't need wood then you'd just keep the fire running all the time."
+
+"Yeah."
+
+"So guys, are we gonna go curl up with Sofia?" asked Artemis.
+
+"Yeah," said Alexey.
+
+"Yeah," said Vasilisa.
+
+Tosha had gone and already lain down.
