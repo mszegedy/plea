@@ -168,6 +168,8 @@ Artemis, meanwhile, didn't seem to be affected by the pull of the dream realm at
 
 "Now that we're out of her earshot since the first time we met her, what do you all think of Sofia?"
 
+There was a pause as the other kids absorbed and processed the question.
+
 "She's cool," replied Vasilisa somewhat numbly. "I thought Alexey's family sucked. But Sofia doesn't suck." She yawned. "Prob'ly 'cause she's, like, Mirror Alexey. Alexey's cool, so Sofia's cool."
 
 "You weren't even a little creeped out by her?"
