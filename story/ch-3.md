@@ -214,7 +214,7 @@ Vasilisa shrugged in response.
 
 "Okay, so…" began Alexey as he opened one of the doors. "Um. Oh."
 
-The four kids stared not at the impressive mock-aloeswood poster bed with three layers of covers, nor at the full body-sized standing mirror with an elaborate white-gold trim detailed in traditional Uralic square-grid patterns, nor at the somewhat out of place red and green Persian rug, but at Alexey's breath. It came out in crystals that sparkled in the firelight.
+The four kids stared not at the impressive mock-aloeswood poster bed with three layers of covers, nor at the full body-sized standing mirror with an elaborate white-gold trim detailed in traditional Samoyed branching patterns, nor at the somewhat out of place red and green Persian rug, but at Alexey's breath. It came out in crystals that sparkled in the firelight.
 
 "I guess we can't sleep here tonight," said Alexey. "Dammit, I should have remembered. I don't think the second floor hearth was lit even when my mother stayed here. Nobody was staying here, so it would've been a waste of firewood. This floor hasn't been warm all winter."
 
