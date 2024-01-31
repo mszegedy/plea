@@ -46,7 +46,7 @@ Confusion. "…who?"
 
 The gaslit hearths went out entirely. The skylight dome's window panes creaked under the weight of whatever it was they were holding back. The buzzing returned to Alexey's ears, loud enough that a part of him reflexively started worrying about long-term hearing loss.
 
-"You do _not. Call me that._ Only Artemis is allowed to call me that. You do not kill my friends and then call me 'Alyosha.'"
+"You do _not. Call me that._ Only Artemis is allowed to call me that. You do not kill my friends and then call me 'Alyosha'."
 
 Pyotr started to get more of a clue of what was going on. The name "Artemis" rang a disappointing bell. "Ah, 'Artemis'… do you still keep in touch with him? He is sorely missed at the Sump," he probed cautiously.
 
