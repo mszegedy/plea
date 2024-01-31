@@ -9,11 +9,13 @@ I was inspired by [*Pact*](https://pactwebserial.wordpress.com/) by John C. McCr
 
 **CONTENT WARNING: Suicide, self-harm, transphobia, abusive parenting, cults, not having a safe place to live, seeing loved ones die.**
 
-Chapters
-========
+## Index
+### PART I: Alexey Pankratyevitch Balandin
 
 [**Chapter 1**](story/ch-1.html)
 
 [**Chapter 2**](story/ch-2.html)
 
 [**Chapter 3**](story/ch-3.html)
+
+[**Chapter 4**](story/ch-4.html)
