@@ -60,6 +60,6 @@ Alexey lunged at Pyotr and grabbed him by the neck, toppling him off the podium 
 
 The skylight's windows caved in, and petroleum soot and ash poured into the room in a roaring blizzard, as though the weight of the whole world were being forced through the new perforations in Lykov House's dome. Alexey's voice rose to a scream, for ambiguous reasons.
 
-"Then along comes Xenia's friend with some nonsense about how the _eastern half of her shadow soul_ is irrevocably male, or something, and kills herself, and Xenia BUYS IT and SWIMS OUT INTO THE SEA HERSELF! WHO DO YOU THINK SHE GOT HER METAPHYSICS FROM, PYOTR IVANOVICH? And Artemis and I are the same way! We have not only our _normal_ doubts, we _then_ have this _insane disease of our reason_ you have forced upon us! And you, you won't listen to a fucking—"
+"Then along comes Xenia's friend with some nonsense about how the _eastern half of her shadow soul_ is irrevocably male, or something, and kills herself, and Xenia BUYS IT and SWIMS OUT INTO THE SEA HERSELF! WHO DO YOU THINK SHE GOT HER METAPHYSICS FROM, PYOTR IVANOVICH? And Artemis and I are the same way! We have not only our _normal_ doubts, we _then_ have this _insane disease of our reasoning ability_ you have forced upon us! And you, you won't listen to a fucking—"
 
 The blizzard buried them both, ending the nightmare.
