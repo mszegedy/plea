@@ -244,8 +244,8 @@ The kids wearily shuffled back downstairs to the grand living room (which exceed
 
 "Yeah," said Vasilisa.
 
+Tosha had gone and already lain down.
+
 <br />
 
 [**Next**](ch-4.html)
-
-Tosha had gone and already lain down.
