@@ -46,20 +46,20 @@ Confusion. "…who?"
 
 The gaslit hearths went out entirely. The skylight dome's window panes creaked under the weight of whatever it was they were holding back. The buzzing returned to Alexey's ears, loud enough that a part of him reflexively started worrying about long-term hearing loss.
 
-"You do _not. Call me that._ Only Artemis is allowed to call me that. You do not kill my friends and then call me 'Alyosha'."
+"You do _not. Call me that._ Only Artemis is allowed to call me that. You do not kill my friends and then call me 'Alyosha.'"
 
 Pyotr started to get more of a clue of what was going on. The name "Artemis" rang a disappointing bell. "Ah, 'Artemis'… do you still keep in touch with him? He is sorely missed at the Sump," he probed cautiously.
 
 "Artemis knew her, too. First, Xenia's friend, who died before she could even be named, killed herself, thanks to you and Katya. I really, really thought Xenia would pull through. She was so smart and sane, you know? Me and Artemis looked up to her. She was the one who pointed out the problems with the Sump to us in the first place. And she…" Alexey trailed off, confused. He wanted to say something about how Xenia was responsible for both him and Artemis discovering their true identities, but while it had made sense for Artemis as a trans person, he had trouble putting into words what Xenia had contributed to his own identity. "She was your strongest opponent. She took everything she learned from you and tried to use it to break your poisonous, treacherous, _extremely fake_ power. But… I don't know what happened. Or no, I do, and Artemis does too, because we all hate ourselves on a level you can't even comprehend, in the same exact way, and it's _your fucking fault._ And so Xenia—"
 
-Pyotr snapped. "Oh, I'm _sorry,_ you have serious mental health issues and you decided to blame _me?_ I take back what I said about your rationality, Alexey, you have to be really… _special_ to think it makes any goddamn sense to make your _obvious mental illness_ MY responsibility. I didn't raise you, I didn't own you, and I didn't abuse you in any way, so if you decide to use the word 'traumagenic' even ONCE—"
+Pyotr snapped. "Oh, I'm _sorry,_ you have serious mental health issues and you decided to blame _me?_ I take back what I said about your rationality, Alexey, you have to be really… _special_ to think it makes any goddamn sense to make your _obvious mental illness_ MY responsibility. I didn't raise you, I didn't own you, and I certaily didn't abuse you in any way, so if you decide to use the word 'traumagenic' even _once—_"
 
 Alexey lunged at Pyotr and grabbed him by the neck, toppling him off the podium and slamming his head on the marble steps. Pyotr, dazed, didn't immediately think to fight back—
 
-"She became INSANE, is what happened! If I talk to _any_ trans person who you haven't touched, they will have normal, sane self-doubts, like their face or their hair or their shadow!"
+"She became _insane,_ is what happened! If I talk to _any_ trans person who you haven't touched, they will have normal, sane self-doubts, like their face or their hair or their shadow!"
 
-The skylight's windows caved in, and petroleum soot and ash poured into the room in a roaring blizzard, as though the weight of the whole world were being forced through the new perforations in Lykov House's dome. Alexey's voice rose to a scream, for ambiguous reasons.
+The skylight window panels caved in, and petroleum soot and ash poured into the room in a roaring blizzard, as though the weight of the whole world were being forced through the new perforations in Lykov House's dome. Alexey's voice rose to a scream, for ambiguous reasons.
 
-"Then along comes Xenia's friend with some nonsense about how the _eastern half of her shadow soul_ is irrevocably male, or something, and kills herself, and Xenia BUYS IT and SWIMS OUT INTO THE SEA HERSELF! WHO DO YOU THINK SHE GOT HER METAPHYSICS FROM, PYOTR IVANOVICH? And Artemis and I are the same way! We have not only our _normal_ doubts, we _then_ have this _insane disease of our reasoning ability_ you have forced upon us! And you, you won't listen to a fucking—"
+"Then along comes Xenia's friend with some nonsense about how the _eastern half of her shadow soul_ is irrevocably male, or something, and kills herself, and Xenia _buys it_ and _swims out to sea herself!_ WHO DO YOU THINK SHE GOT HER METAPHYSICS FROM, PYOTR IVANOVICH? _DOES ANY OF THIS SOUND FAMILIAR?_ And Artemis and I are the same way! We have not only our _normal_ doubts, we _then_ have this _insane disease of our reasoning ability_ you have forced upon us! And you, you won't take your own advice and listen to a fucking—"
 
 The blizzard buried them both, ending the nightmare.
