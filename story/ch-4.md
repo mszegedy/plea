@@ -98,6 +98,6 @@ Pyotr started laughing helplessly, with an undignified snort. He leaned on the t
 
 Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore her mother had even specifically warned her about it.
 
-"So, let me make a suggestion." He pointed at her. "I bet you'd feel better about _that_ sacrifice than killing any of your friends, right? Well, good news. It's on the table. You, and you alone, are cordially invited to Lykov House, at your leisure. I think we'll have some very interesting thiogs to talk about, Sofia Pankratyevna Ryzhaya."
+"So, let me make a suggestion." He pointed at her. "I bet you'd feel better about _that_ sacrifice than killing any of your friends, right? Well, good news. It's on the table. You, and you alone, are cordially invited to Lykov House, at your leisure. I think we'll have some very interesting things to talk about, Sofia Pankratyevna Ryzhaya."
 
-The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with far too many limbs, no head, and a trademark sheen of creosote—when it inverted its stomach and swallowed her whole. Pyotr shrugged as the nightmare ended.
+The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with far too many limbs, no head, and a trademark sheen of creosote—when it inverted its stomach through its belly and swallowed her whole. Pyotr shrugged as the nightmare ended.
