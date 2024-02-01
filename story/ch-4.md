@@ -80,7 +80,7 @@ The food. She watched it get packed into the trunk with her own eyes. And then s
 
 "I don't need to kill anyone," she said out loud, hoping her nightmare's author was listening and becoming suitably embarrassed. "This is a nightmare. Why would we be having breakfast when we don't have food? You did read that memory, didn't you?" (The author in question had, in fact read it, and hastily elected to ignore it so that it could build a more compelling narrative. It guiltily slunk out of Sofia's dream, resolving to respect Sofia's ability to piece together her recent personal timeline in the future.)
 
-Sofia noticed a sixth person at the table. "…who the fuck are you?"
+Sofia noticed a sixth person at the table, and was violently taken aback by the intrusion. "…who the fuck are you?"
 
 He rubbed the back of his head, and then made a cup with his hands, bracing a black-bearded chin against it in a slouch. "I could say the same to you," he replied wearily. "I'm an… old friend, of Alexey's. The last time we saw each other, he wasn't doing so well, so I tried to reach out into his dreams, and I… I ended up here instead. What is this? Who are you? You're dreaming about Alexey, but you aren't him?"
 
