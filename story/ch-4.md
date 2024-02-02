@@ -38,7 +38,7 @@ Alexey thought about the people he'd wanted to bring back, and came to a realiza
 
 "Her name was Xenia," he said, as much to himself as to Pyotr.
 
-Confusion. "…who?"
+The reputed mind-reader was genuinely confused. "…who?"
 
 "The girl you killed. Her name was Xenia, and she was my friend, and you killed her."
 
