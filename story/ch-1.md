@@ -227,13 +227,21 @@ Alexey cracked a smile for the first time since waking up. While it would have o
 
 "Reindeer tripe," replied Artemis and Vasilisa simultaneously.
 
-Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._
+<div.Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._</div>
+
+<br />
 
 ---
 
-The snow melted. The mosquitos came. And when they left again, a woman left with them.
+<br />
+
+<div>The snow melted. The mosquitos came. And when they left again, a woman left with them.</div>
+
+<br />
 
 ---
+
+<br />
 
 A night in late October, Alexey was having a nightmare. He had nightmares every night, but this night there was a new tool in his mind's shed of torture instruments: a girl his age and build, with auburn Ryzhaya hair instead of his usual black.
 
