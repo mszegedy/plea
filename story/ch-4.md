@@ -103,3 +103,25 @@ Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore h
 The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with a hard-to-determine number of hydraulic limbs, no head, and a trademark sheen of creosote—when it everted its stomach through its abdomen and swallowed her whole.
 
 Pyotr shrugged.
+
+---
+
+Artemis was the first to awaken, somewhat uncharacteristically late for her, an hour before noon. She decided to take a stab at the other three hearths herself; she'd apologize to Sofia later, in a warm house. A part of her was worried that Sofia would turn it into a reason to feel bad about herself, but she reasoned that even so, stoking the hearths as soon as possible was the healthiest course of action in multiple respects.
+
+She gently stood up to go get the matchbox, but her first step off the skin she had been sleeping on creaked loudly.
+
+"…good morning," said Tosha quietly, eyes still closed.
+
+"Hey," said Artemis, "Wanna come keep me company while I go light the other fireplaces?"
+
+Tosha looked in Artemis's direction and frowned. "Sofia told Alexey not to do that."
+
+"She'll get over it when the house is toasty."
+
+"I really don't want you to do it. I think it's a bad idea. I'll just lie here."
+
+"Well, suit yourself."
+
+Luckily, their conversation hadn't visibly disturbed anyone else. There were no heavy sleepers in this clique, but everyone was tired from yesterday, and anyone who'd gotten pulled some of the way back to the waking world was polite enough to fail to show it. Artemis grabbed the matches Sofia had left by the fire, and went upstairs.
+
+Seeing Shchavel House in daylight, even dimmed as it was by curtains and dust, gave Artemis a much clearer view of it. She counted the number of idols and books on a random bookshelf: about twenty idols, and thirty books. Call it an even 25. Then multiply by the number of bookshelves in the hallway, eight… multiply by the number of storeys above the ground floor, two… and that would make a total of four hundred each of books and idols in the two hallways, not counting the fireplace mantels. Artemis selected a document at random from one of the shelves, curious.
