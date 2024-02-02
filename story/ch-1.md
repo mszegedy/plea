@@ -127,7 +127,9 @@ He yelped.
 
 "Sorry! I didn't mean to startle you. Alexey Pankratyevitch, would you mind if I took your vitals?"
 
-<p>It was the nurse from before. He relaxed, and rubbed his forehead. Then he noticed his hands had several new mosquito bites on them. He scratched at them a little. He really wanted to get out of here.  <br /></p>
+<p>It was the nurse from before. He relaxed, and rubbed his forehead. Then he noticed his hands had several new mosquito bites on them. He scratched at them a little. He really wanted to get out of here. </p>
+
+<br />
 
 ---
 
