@@ -4,18 +4,18 @@ title: Chapter 1
 
 <div style="font-variant: small-caps">
 Moon-Mother, please take my soul. <br />
-It is scratched. It is worthless.  
-It is all I have to give you.  
-You keep the souls of so many  
-who never should have lost them.  
-If you need names I can give them.  
-The girl who died right here because she didn't believe she could be one.  
-Her friend, who gave her life to a spirit she'd never meet and then swam into the ocean.  
-My once-friend, who went to prove himself in a pointless war so he could be respected.  
-The girl across the ocean who did nothing but sing for her village and got harrassed for it.  
-I can keep naming them for you.  
-They didn't deserve to die and I didn't deserve to live.  
-So please. I will give you my soul now.  
+It is scratched. It is worthless. <br />
+It is all I have to give you. <br />
+You keep the souls of so many <br />
+who never should have lost them. <br />
+If you need names I can give them. <br />
+The girl who died right here because she didn't believe she could be one. <br />
+Her friend, who gave her life to a spirit she'd never meet and then swam into the ocean. <br />
+My once-friend, who went to prove himself in a pointless war so he could be respected. <br />
+The girl across the ocean who did nothing but sing for her village and got harrassed for it. <br />
+I can keep naming them for you. <br />
+They didn't deserve to die and I didn't deserve to live. <br />
+So please. I will give you my soul now. <br />
 I want to trade.
 </div>
 
