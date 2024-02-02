@@ -36,9 +36,13 @@ Sofia struggled to come up with a summary for what she saw as an infinitely comp
 
 Tosha rubbed his eyes. "Can you help me pack? Never packed on my own before." It then occurred to them that they were, in fact, not comfortable letting a stranger near their belongings. "Never mind. Please just get one of my friends for me. To help."
 
-Sofia nodded. "On it."
+<div>Sofia nodded. "On it."</div>
+
+<br />
 
 ---
+
+<br />
 
 Meanwhile, a newly dried and clothed Alexey barged into Artemis's room.
 
@@ -136,9 +140,13 @@ Sofia bumped into Alexey and Artemis on the way back.
 
 The two of them departed in opposite ways, leaving Sofia to awkwardly shuffle over to the common area. She decided to prepare the storm kettle for transportation while she waited.
 
-A muffled voice came from the bathroom. "Oh my _god!_"
+<div>A muffled voice came from the bathroom. "Oh my _god!_"</div>
+
+<br />
 
 ---
+
+<br />
 
 "Deer."
 
