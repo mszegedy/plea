@@ -80,9 +80,13 @@ Artemis knew just enough about shamans, magic, and the reputation of the Ryzhaya
 
 "Actually, my sister's already on that."
 
-Then the yelling started.
+<div>Then the yelling started.</div>
+
+<br />
 
 ---
+
+<br />
 
 Emboldened by how smoothly her first cold call had gone, Sofia went to go knock on the door to Vasilisa's room, forgetting her urgency for a moment as she replayed the successful social interaction in her head and imagined how this new one might go.
 
@@ -118,9 +122,13 @@ There was a short silence.
 
 "Okay."
 
-"Okay, hold on, I need to go check on Tosha. He needs help, too."
+<div>"Okay, hold on, I need to go check on Tosha. He needs help, too."</div>
+
+<br />
 
 ---
+
+<br />
 
 Sofia bumped into Alexey and Artemis on the way back.
 
