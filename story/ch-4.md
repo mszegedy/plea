@@ -100,7 +100,7 @@ Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore h
 
 "So, let me make a suggestion." He pointed at her. "I bet you'd feel better about _that_ sacrifice than killing any of your friends, right? Well, good news. It's on the table. You, and you alone, are cordially invited to Lykov House, at your leisure. I think we'll have some very interesting things to talk about, Sofia Pankratyevna Ryzhaya."
 
-The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with a hard-to-determine number of hydraulic limbs, no head, and a trademark sheen of creosote—when it everted its stomach through its abdomen and swallowed her whole.
+The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with a hard-to-count number of hydraulic limbs, no head, and a trademark sheen of creosote—when it everted its stomach through its abdomen and swallowed her whole.
 
 Pyotr shrugged.
 
