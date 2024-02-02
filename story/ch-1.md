@@ -231,7 +231,7 @@ Alexey cracked a smile for the first time since waking up. While it would have o
 
 "Reindeer tripe," replied Artemis and Vasilisa simultaneously.
 
-<div>Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._</div>
+<div>Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. <i>Fuck that stupid will,</i> he thought. <i>I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back.</i></div>
 
 <br />
 
