@@ -197,9 +197,13 @@ Artemis bit her lip. Alexey was veering into letting his self-hatred do the talk
 
 "Well, and, you're alive. So what does that tell you?"
 
-Alexey was silent for a bit. Then he got out of the car.
+<div>Alexey was silent for a bit. Then he got out of the car.</div>
+
+<br />
 
 ---
+
+<br />
 
 Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants, and its main imports were large quantities of rice, and smaller quantities of fermented bean products to eat it with. The "kitchen" was a corner of the common area taken up by a cast iron storm kettle, detailed to resemble a vase tunicate, a stack of sooty cookware to its left, a bag of coal and a box of matches to its right.
 
@@ -227,7 +231,7 @@ Alexey cracked a smile for the first time since waking up. While it would have o
 
 "Reindeer tripe," replied Artemis and Vasilisa simultaneously.
 
-<div.Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._</div>
+<div>Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._</div>
 
 <br />
 
