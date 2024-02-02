@@ -90,7 +90,7 @@ Sofia hadn't spent her whole life overthinking her nightmares for nothing. She c
 
 She had, on occasion, practiced grinning evilly in the mirror. This man deserved her best.
 
-"I am your nightmare," she said with as much smugness and menace as she could muster, a controlled gaze into Pyotr's eyes, and a reveal of her incisors.
+"I am your nightmare," she said with as much smugness and menace as she could muster, and a display of her incisors.
 
 Pyotr started laughing helplessly, in a series of wheezes and undignified snorts. He leaned on the table to try to catch his breath, but this caused his chair to break underneath him and dump him on the floor, still wheezing. Some dust got into his sinuses, and the poor man, once he caught his breath, immediately sneezed, which caused him to break into a new fit of giggles. Once he was done, however, he stood up gracefully, wearing a menacing grin of his own, which froze most of the humiliation Sofia had been building throughout his antics into icy fear.
 
