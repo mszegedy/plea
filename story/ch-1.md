@@ -3,7 +3,7 @@ title: Chapter 1
 ---
 
 <div style="font-variant: small-caps">
-Moon-Mother, please take my soul.  
+Moon-Mother, please take my soul. <br />
 It is scratched. It is worthless.  
 It is all I have to give you.  
 You keep the souls of so many  
