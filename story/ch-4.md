@@ -102,4 +102,4 @@ Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore h
 
 The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with a hard-to-determine number of hydraulic limbs, no head, and a trademark sheen of creosote—when it everted its stomach through its abdomen and swallowed her whole.
 
-Pyotr.
+Pyotr shrugged.
