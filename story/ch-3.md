@@ -132,9 +132,13 @@ Sofia, despite everything, smiled. "We can arrange that."
 
 Alexey, who'd been ruminating during the discussion and cataloguing the different sorts of smiles his sister seemed to use to communicate her emotions, finally spoke. "I'm sorry, Sofia. Thank you for sharing. You don't have to talk about it again, if you don't want to. How about we all get our minds off it by doing all that stuff we said we were gonna do around the house? The sooner we light the hearth and find our rooms, the sooner we can all go to bed."
 
-There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the ground-floor hearth, oil lamp in hand. (A house this big did not have merely a single hearth, after all, and Sofia's intent was to light all four.) Meanwhile, Alexey led the rest of the gang upstairs to the second floor guest rooms, armed with a box of matches.
+<div>There was a chorus of mumbled affirmations, and the group split. Sofia wandered in the direction of the ground-floor hearth, oil lamp in hand. (A house this big did not have merely a single hearth, after all, and Sofia's intent was to light all four.) Meanwhile, Alexey led the rest of the gang upstairs to the second floor guest rooms, armed with a box of matches.</div>
+
+<br />
 
 ---
+
+<br />
 
 Sofia sat down in front of the fireplace. She shoveled some of the ash out of it and into a large green jar to the side, blown in the shape of a tunicate akin to the matchbox house's lost storm kettle, and many other jar-shaped apparatuses in the city besides. It was simply the local style. Next, she placed fresh, dry logs on the fire, in fairly plentiful supply in Shchavel House. Finally, she steeled herself for the part she couldn't help but hate: lighting the kindling using the lamp. She rolled some spare newspapers from a nearby pile into a tight cylinder, opened the door of the lamp, and lit the cylinder's end on fire, watching it curl and turn into scraps. Now it was up to the whim of the Fire-Mother whether—
 
@@ -150,9 +154,13 @@ In the present day, this idol bore a simple face drawn on it in charcoal, two ci
 
 Sofia felt a little more ambivalent about it, considering that, apart from the horrible experience of blacking out, she now also had to go fetch the matchbox from the lamp's table near the doorway. Normally, she'd have the fortitude to try lighting the fireplace the proper and traditional way again, so that she might master it, but it was four hours and tens of minutes in the morning, and she was using all her remaining patience to bother to light all four hearths in the first place.
 
-Sofia grabbed the matchbox and brought it over. She made a neat nest of paper kindling in the fireplace, and tucked a lit match into it. She stayed a little to watch the fire grow, making sure that the firewood all properly caught alight. Then, understandably and through no fault of her own, she fell asleep on the reindeer skin.
+<div>Sofia grabbed the matchbox and brought it over. She made a neat nest of paper kindling in the fireplace, and tucked a lit match into it. She stayed a little to watch the fire grow, making sure that the firewood all properly caught alight. Then, understandably and through no fault of her own, she fell asleep on the reindeer skin.</div>
+
+<br />
 
 ---
+
+<br />
 
 Alexey led the group to the second floor, up an elegant, zig-zagging staircase. Shchavel House was built at a time when the most prized wood in Siberia was a strange sort of pine heartwood impregnated with resin, a local attempt to replicate the properties of aloeswood by more modest and readily available means. As a result, all the most prominent wooden fixtures in the house smelled pleasant, had a red tinge, and were pliable without being creaky, but were ever so slightly and disconcertingly sticky despite (or perhaps because of) the liberal application of varnish. Neither Tosha nor Vasilisa were fans of this, and one failed attempt to slide their hands up the railing as they ascended convinced them both to keep their hands to themselves unless they could place them on cloth, fur, or metal instead.
 
