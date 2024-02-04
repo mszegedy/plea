@@ -102,7 +102,7 @@ Pyotr started laughing helplessly, in a series of wheezes and undignified snorts
 
 "You should really consider a career in comedy instead of dark magic. That was _gold,_" Pyotr said with apparent sincerity. "Anyway, though, I've got to point out one thing: this is _your_ nightmare, mysterious Ryzhaya girl. What was its premise, again? That you had to kill one of your little group to feed some creature out for your blood, or something?"
 
-Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore her mother had even specifically warned her about it. Had he done it slowly? Or had he pretended not to know what was going on, to try to hear Sofia give it in her own words?
+Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore her mother had even specifically warned her about it. Had he done it slowly? Or had he pretended not to know what was going on, to try to hear Sofia identify herself in her own words?
 
 "So, let me make a suggestion." He pointed at her. "I bet you'd feel better about _that_ sacrifice than killing any of your friends, right? Well, good news. It's on the table. You, and you alone, are cordially invited to Lykov House, at your leisure. I think we'll have some very interesting things to talk about, Sofia Pankratyevna Ryzhaya."
 
