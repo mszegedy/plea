@@ -114,9 +114,9 @@ The abomination hunting her friends appeared behind Sofia. She had just turned t
 
 <br />
 
-Artemis was the first to awaken, somewhat uncharacteristically late for her, an hour before noon. She decided to take a stab at the other three hearths herself; she'd apologize to Sofia later, in a warm house. A part of her was worried that Sofia would turn it into a reason to feel bad about herself, but she reasoned that even so, stoking the hearths as soon as possible was the healthiest course of action in multiple respects.
+Artemis was the first to awaken, somewhat uncharacteristically late for her, an hour before noon. She decided to take a stab at lighting the other three hearths herself; she'd apologize to Sofia later, in a warm house. A part of her was worried that Sofia would turn it into a reason to feel bad about herself, feeling like she'd let everyone down by going to sleep, but Artemis reasoned that even so, stoking the hearths as soon as possible was the healthiest course of action in multiple respects.
 
-She gently stood up to go get the matchbox, but her first step off the skin she had been sleeping on creaked loudly.
+She gently stood up to go get the matchbox from the doorway, but her first step off the skin she had been sleeping on creaked loudly.
 
 "…good morning," said Tosha quietly, eyes still closed.
 
@@ -136,4 +136,70 @@ Seeing Shchavel House in daylight, even dimmed as it was by curtains and dust, g
 
 Over the course of the next hour, Artemis fiddled with getting each hearth lit, paying a tax on the amount of matches she spent lighting each for her clumsiness. She had spent her whole life relying on coal and the handy storm kettle the group had lost, originally a British import she innovated to make it easier to light fires in the tundra, subsequently turned into the matchbox house's most elegant fixture by her and Tosha. The last time she'd tried to light a wood fire had been an ill-advised murder-suicide attempt of hers at the Sump, more than five years ago, and both her muscles and her mind strained against acknowledging the existence of that memory, leaving her bereft of any wood firestarting skill.
 
-But light the first and second floor hearths she did. The fourth hearth, the one not in a hallway, turned about to be in the largest bedroom in the house. Artemis reasoned that this must be the Ryzhaya matriarch's bedroom, and she was reluctant to disturb it directly, so she skipped it. Sofia would have something to light after all.
+But light the first and second floor hearths she did. The fourth hearth, the one not in a hallway, turned about to be in the largest bedroom in the house. Artemis reasoned that this must be the Ryzhaya matriarch's bedroom. She was reluctant to disturb it, having experienced a healthy dose of the taboo around it already, so she skipped it. Sofia would have something to light after all, as much as she had said she didn't want to poke around in that room.
+
+When she returned to the ground floor, Tosha and Vasilisa were already up, having a quiet conversation.
+
+"…and I think I was gonna lock them out or something, but then the dream ended," said Vasilisa.
+
+Tosha nodded. "I ate rice."
+
+"For, like, the whole dream?"
+
+"Someone wanted to take the rice away, but I didn't let them."
+
+"For someone as into cooking as you are, you'd think you'd dream about, like, mapo tofu or something."
+
+Tosha shrugged.
+
+Artemis took this as an opening to interrupt. "Hey guys. Good morning, Vasilisa. So, uh… tangentially relevant topic: we need to do something about food."
+
+"Do the Ryzhayas not have spare food?" asked Tosha. "They must feed all these idols somehow," secretly proud that there were facts about magic they already knew.
+
+"Idols are supposed to be fed with melted reindeer fat. Do you see any slaughtered reindeer here?"
+
+Tosha shrugged again. "It's a big house."
+
+"Yeah… no. There's no reindeer fat here."
+
+Vasilisa spoke up. "Could they have grains? We mostly used to just eat rice anyway," unintentionally hurting Tosha's pride as the cook of the group, who nevertheless stayed silent.
+
+"I looked around and couldn't find anything, but I'd be really happy if you double-checked. But, why don't we just go to the store?"
+
+Vasilisa snorted. "Because that's like the most obvious way to get killed _ever?_ Come on. There's guys out there looking for us."
+
+"They're looking for _Alexey,_ and all they want to do is kidnap, not kill."
+
+"Oh, like _that's_ better."
+
+"It _is_ better! Kidnapped people aren't dead!"
+
+"Yeah, they just get their friends dead instead."
+
+Tosha intervened. "Please stop yelling. You'll wake Alexey and Sofia."
+
+Artemis glanced at the remaining two sleeping figures. "It's past noon. I'm not sure it'd even be healthy to keep them asleep."
+
+"Vasilisa, what do you think we do about food, then?" asked Tosha. "We can't stay here if there isn't any."
+
+"Well, I was thinking we should learn a little basic magic first. Enough to defend ourselves. Or pull off some kind of heist, maybe. Animals steal food all the time, so, maybe we could turn into foxes or something?" Her voice got a little smaller as she finished her sentence.
+
+"Vasilisa, turning into an animal is, like, one of the hardest things a shaman can do. Most people can't even do more than one animal, I think," said Artemis. "It's right up there with going to space or building a robot. Shamans usually learn to do _one_ very hard thing, and this is one of those."
+
+Vasilisa looked crestfallen. "…whatever. Let's just go then."
+
+"Now, hold on. First of all, I have to stress I'm not an expert. This is just what I picked up in the Sump, and they're really unhinged over there. I dunno if I can trust them. Second of all, there's plenty of other shamanic stuff we might be able to do. There's probably at least _one_ useful idol around here."
+
+"Should I wake up Sofia?" asked Tosha. "So she could tell us."
+
+"I kind of just want to wait for her and Alexey to get up on their own, so they can tell us. Is that okay?" said Artemis.
+
+<div>Both Tosha and Vasilisa nodded.</div>
+
+<br />
+
+---
+
+<br />
+
+"Look, I admire your courage, I do, but this is a terrible idea," said Sofia.
