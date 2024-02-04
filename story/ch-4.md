@@ -82,7 +82,9 @@ While an awake Sofia would have been happy to ponder this topic at length and co
 
 The food. She had watched it get packed into the trunk with her own eyes. And then seen and discussed at length both the how trunk was empty and how it became so.
 
-The spell was broken. "I don't need to kill anyone," said Sofia out loud, hoping her nightmare's author was listening and becoming suitably embarrassed. "This is a nightmare. Why would we be having breakfast when we don't have food? You did read that memory, didn't you?" (The author in question had, in fact read it, and hastily elected to ignore it so that it could build a more compelling narrative. It guiltily slunk out of Sofia's dream, resolving to respect Sofia's ability to piece together her recent personal timeline more in the future.)
+The spell was broken. "I don't need to kill anyone," said Sofia out loud, hoping her nightmare's author was listening and becoming suitably embarrassed. "This is a nightmare. Why would we be having breakfast when we don't have food? You did read that memory, didn't you?"
+
+The author in question had, in fact read it, and hastily elected to ignore it so that it could build a more compelling narrative. It guiltily slunk out of Sofia's dream, resolving to respect Sofia's ability to piece together her recent personal timeline more in the future.
 
 Sofia noticed a sixth person at the table, and was violently taken aback by the intrusion. "…who the fuck are you?"
 
