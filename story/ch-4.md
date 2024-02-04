@@ -90,7 +90,7 @@ Sofia noticed a sixth person at the table, and was violently taken aback by the 
 
 He rubbed the back of his head, and then made a cup with his hands, bracing a black-bearded chin against it in a slouch. "I could say the same to you," he replied wearily. "I'm an… old friend, of Alexey's. The last time we saw each other, he wasn't doing so well, so I tried to reach out into his dreams, and I… I ended up here instead. What is this? Who are you? You're dreaming about Alexey, but you aren't him?"
 
-Sofia hadn't spent her whole life overthinking her nightmares for nothing. She connected the dots before he even finished talking, more than confirmed by the description her mother had given her of this man's appearance. "You're Pyotr Lykov," she said, with amazement in her voice. "You ordered a _hit_ on Alexey. And me."
+Sofia hadn't spent her whole life overthinking her nightmares for nothing. She connected the dots before he even finished talking, more than confirmed by the description her mother had given her of this man's appearance. "You're Pyotr Ivanovitch Lykov," she said, with amazement in her voice. "You ordered a _hit_ on Alexey. And me."
 
 "No, seriously, who are you?"
 
