@@ -44,7 +44,7 @@ The reputed mind-reader was genuinely confused. "…who?"
 
 "You're not making sense, Alyosha. Who do you think I killed? You know me. You know what I stand for. I'm always trying my hardest to _save_ everyone, not kill them. You are too, I _know_ you are. You're an incredibly strong and smart person, Alyosha, and as two of the most rational people in Keleykh, we can talk this out. But please don't tell me I killed this 'Xenia'. I have never known a Xenia and never killed anyone."
 
-The gaslit hearths went out entirely. The skylight dome's window panes creaked under the weight of whatever it was they were holding back. The buzzing returned to Alexey's ears, loud enough that a part of him reflexively started worrying about long-term hearing loss.
+The gaslit hearths went out entirely. The skylight dome's window panes creaked under the weight of whatever it was they were holding back. The buzzing returned to Alexey's ears, loud enough that a part of him reflexively started worrying about long-term hearing loss. He noticed he was still covered in the tar and oil he picked up at the school. Had it always been so thick?
 
 "You do _not. Call me that._ Only Artemis is allowed to call me that. You do not kill my friends and then call me 'Alyosha'."
 
@@ -54,7 +54,7 @@ Pyotr started to get more of a clue of what was going on. The name "Artemis" ran
 
 Pyotr snapped. "Oh, I'm _sorry,_ you have serious mental health issues and you decided to blame _me?_ I take back what I said about your rationality, Alexey, you have to be really… _special_ to think it makes any damned sense to make your obvious mental illness _my_ responsibility. I didn't raise you, I didn't own you, and I certainly didn't abuse you in any way, so if you decide to use the word 'traumagenic' even _once—_"
 
-Alexey lunged at Pyotr and grabbed him by the neck, toppling him off the podium and slamming his head on the marble steps. Pyotr, dazed, didn't immediately think to fight back—
+Alexey lunged at Pyotr and grabbed him by the neck, toppling him off the podium and slamming his head on the marble steps. Pyotr, dazed, didn't immediately think to fight back. Alexey's fingers left black handprints on his throat, and crude oil dripped down onto his clean beige pants.
 
 "She became _insane,_ is what happened! If I talk to _any_ trans person who you haven't touched, they will have normal, sane self-doubts, like their face or their hair or their shadow!"
 
