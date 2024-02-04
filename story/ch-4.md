@@ -156,7 +156,7 @@ Tosha shrugged.
 
 Artemis took this as an opening to interrupt. "Hey guys. Good morning, Vasilisa. So, uh… tangentially relevant topic: we need to do something about food."
 
-"Do the Ryzhayas not have spare food?" asked Tosha. "They must feed all these idols somehow," referencing the single most widely-known fact about idols in Keleykh.
+It was finally Tosha's turn to know something about magic. "Do the Ryzhayas not have spare food?" they asked. "They must feed all these idols somehow."
 
 "Idols are supposed to be fed with melted reindeer fat. Do you see any slaughtered reindeer here?"
 
