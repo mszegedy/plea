@@ -146,7 +146,7 @@ When she returned to the ground floor, Tosha and Vasilisa were already up, havin
 
 Tosha nodded. "I ate rice."
 
-"For, like, the whole dream?"
+"For, like. The whole dream?"
 
 "Someone wanted to take the rice away, but I didn't let them."
 
@@ -154,7 +154,7 @@ Tosha nodded. "I ate rice."
 
 Tosha shrugged.
 
-Artemis took this as an opening to interrupt. "Hey guys. Good morning, Vasilisa. So, uh… tangentially relevant topic: we need to do something about food."
+Artemis took this as an opening to interrupt. "Hey guys. Good morning, Vasilisa. So, uh… tangentially relevant topic: we need to do something about food. And meds."
 
 It was finally Tosha's turn to know something about magic. "Do the Ryzhayas not have spare food?" they asked. "They must feed all these idols somehow."
 
