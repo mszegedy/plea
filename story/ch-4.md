@@ -188,7 +188,7 @@ Artemis glanced at the remaining two sleeping figures. "It's past noon. I'm not 
 
 Vasilisa looked crestfallen. "…whatever. Let's just go then."
 
-"Now, hold on. First of all, I have to stress I'm not an expert. This is just what I picked up in the Sump, and they're really unhinged over there. I dunno if I can trust them. Second of all, there's plenty of other shamanic stuff we might be able to do. There's probably at least _one_ useful idol around here."
+"Okay, wait. First of all, I have to stress I'm not an expert. This is just what I picked up in the Sump, and they're really unhinged over there. I dunno if I can trust them. Second of all, there's plenty of other shamanic stuff we might be able to do. There's probably at least _one_ useful idol around here."
 
 "Should I wake up Sofia?" asked Tosha. "So she could tell us."
 
