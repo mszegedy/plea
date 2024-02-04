@@ -80,7 +80,7 @@ Growing up, Sofia had been taught to _resist_ the urge to seek lucidity in these
 
 While an awake Sofia would have been happy to ponder this topic at length and contemplate adding her own dissertation to the great Shchavel House library, asleep, she was absorbed in the central problem of every nightmare: how could she tell it was a nightmare? The spirits could read her thoughts and create fake memories to answer her questions in plausible ways, but they were either too afraid or too stupid to change existing, real-world memories. So, often, she could just—
 
-The food. She had watched it get packed into the trunk with her own eyes. And then seen and discussed at length both the how trunk was empty and how it became so.
+The food. She had watched it get packed into the trunk with her own eyes. And then seen and discussed at length both how the trunk was empty and how it became so.
 
 The spell was broken. "I don't need to kill anyone," said Sofia out loud, hoping her nightmare's author was listening and becoming suitably embarrassed. "This is a nightmare. Why would we be having breakfast when we don't have food? You did read that memory, didn't you?"
 
