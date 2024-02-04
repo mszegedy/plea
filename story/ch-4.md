@@ -162,7 +162,7 @@ Tosha shrugged again. "It's a big house."
 
 "Yeah… no. There's no reindeer fat here."
 
-Vasilisa spoke up. "Could they have grains? We mostly used to just eat rice anyway," unintentionally hurting Tosha's pride as the cook of the group, who nevertheless stayed silent.
+"Could they have grains? We mostly used to just eat rice anyway," spoke up Vasilisa, unintentionally hurting Tosha's pride as the cook of the group, who nevertheless stayed silent.
 
 "I looked around and couldn't find anything, but I'd be really happy if you double-checked. But, why don't we just go to the store?"
 
