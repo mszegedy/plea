@@ -234,7 +234,7 @@ Tosha had gone back to sleep, leaving Artemis and Vasilisa alone to persuade Sof
 
 "So… what does Tosha _do_ around here?" asked Sofia in her confusion, instantly regretting it.
 
-Artemis narrowed her eyes and gave Sofia a stern, pointed look. "Tosha is our _friend,_" she said, with venom. "They don't _need_ to do anything around here. This is a _house,_ not a _company."
+Artemis narrowed her eyes and gave Sofia a stern, pointed look. "Tosha is our _friend,_" she said, with venom. "They don't _need_ to do anything around here. This is a _house,_ not a _company._"
 
 "But also he cooks," said Vasilisa, trying to help the case. "Mostly rice and tofu, but it's good."
 
