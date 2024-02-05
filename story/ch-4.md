@@ -208,6 +208,8 @@ Vasilisa looked crestfallen. "…whatever. Let's just go then."
 
 "Look, I admire your courage, I do, but this is a terrible idea," said Sofia. "Artemis, you were part of the Sump, weren't you? We haven't talked about it much, but I heard how Nikolay Nikolaevitch talked to you. They know what you look like, and they are looking for you. Not to mention how incredibly loud your car is."
 
+Tosha had gone back to sleep, leaving Artemis and Vasilisa alone to persuade Sofia for help.
+
 "It's a normal amount of loud for a car," protested Artemis. "You guys just aren't used to them."
 
 "Regardless. You can't go, because you'll die or get kidnapped. I feel like I've said 'die or get kidnapped' enough times by now that it needs a word. Is there a word for it?"
