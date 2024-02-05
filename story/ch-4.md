@@ -180,6 +180,8 @@ Vasilisa snorted. "Because that's like the most obvious way to get killed _ever?
 
 Tosha intervened. "Please stop yelling. You'll wake Alexey and Sofia."
 
+<!-- They were just sorta yell-whispering, not really yelling. Tosha's just sensitive to that sort of thing and doesn't have a better word for it than "yell". -->
+
 Artemis glanced at the remaining two sleeping figures. "It's past noon. I'm not sure it'd even be healthy to keep them asleep."
 
 "Vasilisa, what do you think we do about food, then?" asked Tosha. "We can't stay here if there isn't any."
@@ -204,4 +206,76 @@ Vasilisa looked crestfallen. "…whatever. Let's just go then."
 
 <br />
 
-"Look, I admire your courage, I do, but this is a terrible idea," said Sofia.
+"Look, I admire your courage, I do, but this is a terrible idea," said Sofia. "Artemis, you were part of the Sump, weren't you? We haven't talked about it much, but I heard how Nikolay Nikolaevitch talked to you. They know what you look like, and they are looking for you. Not to mention how incredibly loud your car is."
+
+"It's a normal amount of loud for a car," protested Artemis. "You guys just aren't used to them."
+
+"Regardless. You can't go, because you'll die or get kidnapped. I feel like I've said 'die or get kidnapped' enough times by now that it needs a word. Is there a word for it?"
+
+"What if I go?" said Vasilisa. "I mean, I'd study some magic first, but like, I'd go tonight."
+
+"Magic isn't something you can just study for an afternoon and apply immediately," said Sofia. "But it's a better plan than Artemis's, at least."
+
+"Vasilisa, I'm not going to let you just go on your own, no matter what," said Artemis. "I… I'm not just bragging, but I'm better in a fight than you, you know that, right?"
+
+"Yeah, yeah," said Vasilisa, still a little hurt. "Your leather getup is _armor_ or whatever."
+
+"It was good enough for the Mongols," shrugged Artemis.
+
+"What about Tosha?" asked Sofia innocently, inviting the other two to stare at her. "Is he good in a fight?"
+
+"No," said Artemis, at the same time as Vasilisa said, "Hell, no."
+
+"Tosha isn't good in a _grocery store,_" said Artemis. "They're not really the going-outside type. They'll just get lost and scared."
+
+"And in a fight, he'll be super _extra_ scared," emphasized Vasilisa. "Screw that."
+
+"So… what does Tosha _do_ around here?" asked Sofia in her confusion, instantly regretting it.
+
+Artemis narrowed her eyes and gave Sofia a stern, pointed look. "Tosha is our _friend,_" she said, with venom. "They don't _need_ to do anything around here. This is a _house,_ not a _company."
+
+"But also he cooks," said Vasilisa, trying to help the case. "Mostly rice and tofu, but it's good."
+
+Artemis rolled her eyes at her. "They don't _need_ to cook for us, though. They just do it because they're nice."
+
+Sofia, having grown up in a household where utility was equated to a right to live, couldn't unlearn her entire upbringing in one reprimand. But she was no island, and this wasn't the first time she'd heard that the average person doesn't expect everyone to justify their existence somehow. She didn't expect anyone to do so, either, unlike most of her family. Yet, what did it matter? She'd asked the question anyway.
+
+"Okay, sorry. I'm really sorry, I didn't mean it that way," she said.
+
+"How _did_ you mean it, then?" asked Artemis with no less intensity than before.
+
+"Just… I don't know. I'm sorry. I don't expect Tosha to do anything, necessarily. I just wanted to know if he can, because people… usually can. Do things, that is," she finished lamely. "I'm sorry."
+
+Her friends were silent. Vasilisa was about to change the subject, but—
+
+"So, by the way, is he a 'he' or a 'they'?" asked Sofia. "Because you said 'he', but _you_ said 'they'," pointing at each girl in turn, "Which was confusing but I think I get it?"
+
+"Either one," said Artemis, still a little icily. "Thank you for asking. It's important to ask."
+
+"…but he's called Tosha? Why not a gender-neutral name?"
+
+"That's their call," said Artemis, rolling her eyes again.
+
+"Right, anyway, guys. Artemis, are you leaving or not?" asked Vasilisa, hurrying before they started a new topic without her.
+
+"Yes," said Artemis.
+
+"No! Come on!" said Sofia. "What are you going to do? Try to run them over with your stupid car again? Because it worked so well last time?"
+
+"I'm not _taking_ the car. I'll walk."
+
+"That's even dumber," said Vasilisa. "Sofia's right. Fuck off, Artemis, and let me do this. Actually _don't_ fuck off. You know what I mean."
+
+"_I'll_ do it," said Sofia. "The Gvezdins didn't recognize me at all," neglecting to mention that Pyotr himself, who was in league with them, assuredly did.
+
+"I'm going, and you can't stop me. Sofia, do you have any idols that can help disguise me?"
+
+"…I mean, the CO poisoning ones can remove memories or make people unable to recognize faces, but none of them are trained for that," said Sofia, despite herself.
+
+"What about one that I can use on my*self?*"
+
+"…uh. Give yourself a disease? Let me think a moment."
+
+The two girls waited patiently.
+
+"I've got it," said Sofia, a new grin on her face.
