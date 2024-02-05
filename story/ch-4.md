@@ -250,7 +250,7 @@ Sofia, having grown up in a household where utility was equated to a right to li
 
 Her friends were silent. Vasilisa was about to change the subject, but—
 
-"So, by the way, is he a 'he' or a 'they'?" asked Sofia. "Because you said 'he', but _you_ said 'they'," pointing at each girl in turn, "Which was confusing but I think I get it?"
+"So, by the way, is he a 'he' or a 'they'?" asked Sofia. "Because you said 'he', but _you_ said 'they'," she said, pointing at each girl in turn, "Which was confusing but I think I get it?"
 
 "Either one," said Artemis, still a little icily. "Thank you for asking. It's important to ask."
 
