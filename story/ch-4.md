@@ -240,7 +240,7 @@ Artemis narrowed her eyes and gave Sofia a stern, pointed look. "Tosha is our _f
 
 Artemis rolled her eyes at her. "They don't _need_ to cook for us, though. They just do it because they're nice."
 
-Sofia, having grown up in a household where utility was equated to a right to live, couldn't unlearn her entire upbringing in one reprimand. But she was no island, and this wasn't the first time she'd heard that the average person doesn't expect everyone to justify their existence somehow. She didn't expect anyone to do so, either, unlike most of her family. Yet, what did it matter? She'd asked the question anyway.
+Sofia, having grown up in a household where utility was equated to a right to live, couldn't unlearn her entire upbringing in one reprimand. But she was no island, and this wasn't the first time she'd heard that the average person doesn't expect everyone they meet to immediately justify their existence somehow. She didn't expect anyone to do so, either, unlike most of her family. Yet, what did it matter? She'd asked the question anyway.
 
 "Okay, sorry. I'm really sorry, I didn't mean it that way," she said.
 
