@@ -268,7 +268,7 @@ Her friends were silent. Vasilisa was about to change the subject, but—
 
 "That's even dumber," said Vasilisa. "Sofia's right. Fuck off, Artemis, and let me do this. Actually _don't_ fuck off. You know what I mean."
 
-"_I'll_ do it," said Sofia. "The Gvezdins didn't recognize me at all," neglecting to mention that Pyotr himself, who was in league with them, had assuredly learned her identity by now and disseminated it along the appropriate channels.
+"_I'll_ do it," said Sofia. "The Gvezdins didn't recognize me at all," neglecting to mention that Pyotr himself, who was in league with them, had learned her identity through her dreams and assuredly disseminated it by now along the appropriate channels.
 
 "I'm going, and you can't stop me. Sofia, do you have any idols that can help disguise me?"
 
