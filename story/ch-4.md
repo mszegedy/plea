@@ -226,7 +226,7 @@ Tosha had woken up Sofia, then gone back to sleep next to Alexey, leaving Artemi
 
 "What about Tosha?" asked Sofia innocently, inviting the other two to stare at her. "Is he good in a fight?"
 
-"No," said Artemis, at the same time as Vasilisa said, "Hell, no."
+"No," said Artemis, at the same time as Vasilisa said, "Hell, no," internally appreciating the fact that this time she wasn't on the receiving end of the double denial.
 
 "Tosha isn't good in a _grocery store,_" said Artemis. "They're not really the going-outside type. They'll just get lost and scared."
 
