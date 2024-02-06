@@ -10,9 +10,13 @@ Before Artemis had left, she had anointed both idols with her blood. "It's not n
 
 Artemis stopped at an intersection and looked at the signage, frustrated. She couldn't remember where the hell this intersection was located on the main street relative to the store, and resented it. She felt small, afraid, and like a failure. "A little fear is good," Sofia had told her. "That's the idol working. You have to let it work. Embrace its effect. Otherwise you can't use it."
 
-She picked a direction and kept pushing.
+<div>She picked a direction and kept pushing.</div>
+
+<br />
 
 ---
+
+<br />
 
 An hour ago, Sofia was explaining the basics of disease spirit idols to Artemis and Vasilisa.
 
@@ -48,9 +52,13 @@ Artemis felt that this wasn't giving her ethics and kind nature enough credit, b
 
 "You coming?" asked Vasilisa.
 
-"Uh… yeah. Coming."
+<div>"Uh… yeah. Coming."</div>
+
+<br />
 
 ---
+
+<br />
 
 Artemis did not know what the crowds looked like to an onlooker. Supposedly she was hidden in them without there being any visible sign she was using an idol. Was she just easy to glance over? Or actually invisible?
 
