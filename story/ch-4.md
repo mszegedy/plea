@@ -58,7 +58,7 @@ Alexey lunged at Pyotr and grabbed him by the neck, toppling him off the podium 
 
 "She became _insane,_ is what happened! If I talk to _any_ trans person who you haven't touched, they will have normal, sane self-doubts, like their face or their hair or their shadow!"
 
-The skylight window panels caved in, and petroleum soot and ash, interspersed with acicular nitrogen snow, poured into the room in a roaring blizzard colder and heavier than any earthly snowstorm, as though the weight of the whole dead and frozen world were being forced through those little perforations in Lykov House's dome. Alexey's voice rose to a hoarse and broken scream.
+The skylight window panels caved in, and petroleum soot and ash, interspersed with acicular nitrogen snow, poured into the room in a roaring blizzard colder and heavier than any earthly snowstorm, as though the weight of the whole dead and frozen world were being forced through those little perforations in Lykov House's dome. Alexey's voice rose to a hoarse and broken scream, shouting over the buzzing that was now making the whole building vibrate violently.
 
 "Then along comes Xenia's friend with some nonsense about how the _shoreward half of her shadow soul_ is irrevocably male, or something, and kills herself, and Xenia _buys it_ and _drowns herself in the Furrowed Sea!_ WHO DO YOU THINK SHE GOT HER METAPHYSICS FROM, PYOTR IVANOVICH? _DOES ANY OF THIS SOUND FAMILIAR?_ And Artemis and I are the same way! We have not only our _normal_ doubts, we _then_ have this _insane disease of our reasoning ability_ you have forced upon us! And you, you won't take your own advice and listen to a fucking—"
 
