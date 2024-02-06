@@ -19,3 +19,5 @@ I was inspired by [*Pact*](https://pactwebserial.wordpress.com/) by John C. McCr
 [**Chapter 3**](story/ch-3.html)
 
 [**Chapter 4**](story/ch-4.html)
+
+[**Chapter 5**](story/ch-5.html)
