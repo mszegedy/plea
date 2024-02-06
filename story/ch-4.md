@@ -208,7 +208,7 @@ Vasilisa looked crestfallen. "…whatever. Let's just go then."
 
 "Look, I admire your courage, I do, but this is a terrible idea," said Sofia. "Artemis, you were part of the Sump, weren't you? We haven't talked about it much, but I heard how Nikolay Nikolaevitch talked to you. They know what you look like, and they are looking for you. Not to mention how incredibly loud your car is."
 
-Tosha had woken up Sofia, then gone back to sleep next to Alexey, leaving Artemis and Vasilisa alone to persuade Sofia for help.
+Tosha had woken up Sofia, then gone back to sleep next to Alexey, leaving Artemis and Vasilisa alone to persuade Sofia for help. She awoke uninclined to chastise anyone or worry too much about being a bad host, so Artemis was vindicated in the issue of the lighting of the hearths.
 
 "It's a normal amount of loud for a car," protested Artemis. "You guys just aren't used to them."
 
