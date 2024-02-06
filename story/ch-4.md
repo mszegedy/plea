@@ -281,3 +281,7 @@ Her friends were silent. Vasilisa was about to change the subject, but—
 The two girls waited patiently.
 
 "I've got it," said Sofia, a new grin on her face.
+
+<br />
+
+[**Next**](ch-5.html)
