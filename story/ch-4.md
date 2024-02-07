@@ -270,7 +270,7 @@ Her friends were silent. Vasilisa was about to change the subject, but—
 
 "_I'll_ do it," said Sofia. "The Gvezdins didn't recognize me at all," neglecting to mention that Pyotr himself, who was in league with them, had learned her identity through her dreams and assuredly disseminated it by now along the appropriate channels.
 
-"I'm going, and you can't stop me. Sofia, do you have any idols that can help disguise me?"
+Artemis didn't even want to bother addressing this line of thought. "I'm going, and you can't stop me. Sofia, do you have any idols that can help disguise me?"
 
 "…I mean, the CO poisoning ones can remove memories or make people unable to recognize faces, but none of them are trained for that," said Sofia, despite herself.
 
