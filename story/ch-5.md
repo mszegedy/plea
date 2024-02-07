@@ -72,6 +72,7 @@ As one who's normally not had much trouble with social interactions, this was a 
 
 <br />
 
+<!--
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
@@ -86,3 +87,4 @@ As one who's normally not had much trouble with social interactions, this was a 
     })();
 </script>
 <noscript>Please enable JavaScript to view the <a href="https://disqus.com/?ref_noscript">comments powered by Disqus.</a></noscript>
+-->
