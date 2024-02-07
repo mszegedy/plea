@@ -10,7 +10,7 @@ Artemis nervously shuffled her way down the street, pushing her way through thic
 
 Her left hand was buried in her coat pocket, clutching a metal figurine of a woman like one might clutch a concealed pistol. This was an apt analogy, for its only use was to escalate fights and to intimidate her enemies, not as a first resort for self defense. Artemis was interested in stealth, anyhow, not fighting. It just didn't hurt to have a backup plan. A thin loop of string around her neck was tied to another figurine inside her coat, this one of stone and shaped like a hedgehog. This idol was the true powerhouse behind the operation, and made Artemis's current concealment possible.
 
-Before Artemis had left, she had anointed both idols with her blood. "It's not necessary," Sofia had said, "But it can't hurt." Her hypothesis was that a small meal of her blood would endear the idols to her for a short time. This was not a normal way to feed an idol, but the Ryzhayas were a different breed.
+Before Artemis had left, she had anointed both idols with her blood. "It's not necessary," Sofia had said, "But it can't hurt." Her hypothesis was that a small meal of Artemis's blood would endear the idols to her for a short time. This was not a normal way to feed an idol, but the Ryzhayas were a different breed.
 
 Artemis stopped at an intersection and looked at the signage, frustrated. She couldn't remember where the hell this intersection was located on the main street relative to the store, and resented it. She felt small, afraid, and like a failure. "A little fear is good," Sofia had told her. "That's the idol working. You have to let it work. Embrace its effect. Otherwise you can't use it."
 
