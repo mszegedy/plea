@@ -288,10 +288,6 @@ The two girls waited patiently.
 
 <br />
 
----
-
-<br />
-
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
