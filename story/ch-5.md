@@ -72,10 +72,6 @@ As one who's normally not had much trouble with social interactions, this was a 
 
 <br />
 
----
-
-<br />
-
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
