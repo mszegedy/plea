@@ -26,7 +26,7 @@ An hour ago, Sofia was explaining the basics of disease spirit idols to Artemis 
 
 "The way it works is, once you bottle the disease, you can release it at will. That part's obvious," she said in a lecturing tone, which had Alexey been awake, would have reminded him uncomfortably of his mother. "But what does releasing the disease mean? You don't just give people its symptoms. You recreate the _conditions_ under which the disease took place. A CO poisoning spirit won't just poison people, it'll create actual carbon monoxide. A flu spirit will smell like the breath of a sick person. A spirit of a broken bone can be used to apply great forces and break things."
 
-"So… we want a disease… where when people get it, other people lose track of them," said Vasilisa.
+"So… we want a disease… where… people tend to feel its effects when other people lose track of them," said Vasilisa.
 
 "Exactly," beamed Sofia. "You want to guess what that might be?"
 
