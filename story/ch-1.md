@@ -321,10 +321,6 @@ The Moon-Mother watched them depart into the frozen night.
 
 <br />
 
----
-
-<br />
-
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
