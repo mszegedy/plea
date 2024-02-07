@@ -2,6 +2,8 @@
 title: Chapter 5
 ---
 
+**This chapter is unfinished.**
+
 [**Previously**](ch-4.html)
 
 Artemis nervously shuffled her way down the street, pushing her way through thick crowds. Before leaving, she had compiled a list of grocery items and meds to obtain with the help of Tosha and Vasilisa. It was her personal belief that they were letting Alexey sleep in too long, but in his case, she knew his meds already by heart. Sofia had no contributions to make to either list, although Artemis was planning on purchasing a doubled amount of Alexey's meds, just in case he ended up having to share them with Sofia. She would figure out the chirality issue later, although luckily Alexey's lithium didn't need reversing. She planned to buy caraway seeds to test whether chirality was even a concern, but was preparing for disappointment.
