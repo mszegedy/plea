@@ -318,3 +318,23 @@ The Moon-Mother watched them depart into the frozen night.
 <br />
 
 [**Next**](ch-2.html)
+
+<br />
+
+---
+
+<br />
+
+<div id="disqus_thread"></div>
+<script>
+    var disqus_config = function () {
+    this.page.url = 'https://mszegedy.github.io/plea/';
+    this.page.identifier = 'ch-1';
+    };
+    (function() {
+    var d = document, s = d.createElement('script');
+    s.src = 'https://plea.disqus.com/embed.js';
+    s.setAttribute('data-timestamp', +new Date());
+    (d.head || d.body).appendChild(s);
+    })();
+</script>
