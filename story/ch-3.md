@@ -260,10 +260,6 @@ Tosha had gone and already lain down.
 
 <br />
 
----
-
-<br />
-
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
