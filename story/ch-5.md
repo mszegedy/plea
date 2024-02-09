@@ -6,13 +6,13 @@ title: Chapter 5
 
 [**Previously**](ch-4.html)
 
-Artemis nervously shuffled her way down the street, pushing her way through thick crowds. Before leaving, she had compiled a list of grocery items and meds to obtain with the help of Tosha and Vasilisa. It was her personal belief that they were letting Alexey sleep in too long, but in his case, she knew his meds already by heart. Sofia had no contributions to make to either list, although Artemis was planning on purchasing a doubled amount of Alexey's meds, just in case he ended up having to share them with Sofia. She would figure out the chirality issue later, although luckily Alexey's lithium didn't need reversing. She planned to buy caraway seeds to test whether chirality was even a concern, but was preparing for disappointment.
+Artemis nervously shuffled her way down Republic Street, a prominent, commercial avenue, pushing her way through thick crowds. Before leaving, she had compiled a list of grocery items and medications to obtain with the help of Tosha and Vasilisa. It was her personal belief that they were letting Alexey sleep in too long, but in his case, she knew his meds already by heart. Sofia had no contributions to make to either list, although Artemis was planning on purchasing a doubled amount of Alexey's meds, just in case he ended up having to share them with Sofia. She would figure out the chirality issue later, although luckily Alexey's lithium didn't need reversing. She planned to buy caraway seeds to test whether chirality was even a concern, but was preparing for disappointment.
 
 Her left hand was buried in her coat pocket, clutching a metal figurine of a woman like one might clutch a concealed pistol. This was an apt analogy, for its only use was to escalate fights and to intimidate her enemies, not as a first resort for self defense. Artemis was interested in stealth, anyhow, not fighting. It just didn't hurt to have a backup plan. A thin loop of string around her neck was tied to another figurine inside her coat, this one of stone and shaped like a hedgehog. This idol was the true powerhouse behind the operation, and made Artemis's current concealment possible.
 
 Before Artemis had left, she had anointed both idols with her blood. "It's not necessary," Sofia had said, "But it can't hurt." Her hypothesis was that a small meal of Artemis's blood would endear the idols to her for a short time. This was not a normal way to feed an idol, but the Ryzhayas were a different breed.
 
-Artemis stopped at an intersection and looked at the signage, frustrated. She couldn't remember where the hell this intersection was located on the main street relative to the store, and resented it. She felt small, afraid, and like a failure. "A little fear is good," Sofia had told her. "That's the idol working. You have to let it work. Embrace its effect. Otherwise you can't use it."
+Artemis stopped at an intersection and looked at the signage, frustrated. She couldn't remember where this intersection was located on Republic Street relative to the store, and resented it. She felt small, afraid, and like a failure. "A little fear is good," Sofia had told her. "That's the idol working. You have to let it work. Embrace its effect. Otherwise you can't use it."
 
 <div>She picked a direction and kept pushing.</div>
 
@@ -69,6 +69,8 @@ Artemis did not know what the crowds looked like to an onlooker. Supposedly she 
 She bumped into a featureless man in business clothes. "Hey, watch it, asshole," he said, his voice sounding uncannily dead, almost sarcastic. Artemis paled. She did not want to be here. "I'm so sorry," she said, panicked. "I didn't mean to, sorry." But he was already gone.
 
 As one who's normally not had much trouble with social interactions, this was a new experience for Artemis. Had she not been under the influence of the idol, she would have just given him a middle finger and moved on. Maybe dismissed him with a clever insult. The disease, however, turned all attention on her into a burning, carcinogenic spotlight, and it was all she could do to not double over and vomit from radiation poisoning if it went on for more than a few seconds. She had steeled herself for the whole experience in advance, and bore the burden with some pride, as she remained firm in her decision to leave rather than sending Vasilisa in her stead. But privately, inwardly, she could complain as much as she wanted. And she was not having a good time.
+
+Her first stop was a small mom-and-pop pharmacy off of Republic. Pharmacies in Russia didn't typically ask for prescriptions, even for medications that were mandated by law as prescription-only, but Artemis was already very worried about the possibility. She had no plan for what to do in the case that they did ask, other than to conduct an armed robbery by means of the metal idol she was still clutching.
 
 <br />
 
