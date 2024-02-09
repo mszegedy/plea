@@ -92,7 +92,7 @@ She frantically rooted around in the inside pockets of her coat and found a page
 
 "I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages.
 
-"Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, leuprorelin, needles… uh, do you have all those? I can give the dosages and gauges."
+"Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, bicalutamide, needles… uh, do you have all those? I can give the dosages and gauges."
 
 The cashier stared at her.
 
