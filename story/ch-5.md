@@ -136,13 +136,13 @@ Vasilisa snorted. "If _I_ wrote that book, fully _half_ of it would be metaphysi
 
 "Well, it's your choice. Don't say I didn't warn you. But yeah, before you get into it, you should read _Metamorphoses_ first. It's a lot shorter, and covers a lot more basic stuff."
 
-Vasilisa nodded. "Work before play." She looked at _The mind that seeks to replace itself_ and frowned. "This is in English."
+Vasilisa nodded. "Work before play." She looked at the shapeshifting textbook and frowned. "This is in English."
 
 "We have a translator for that, too. Though I've never needed it. My mom taught me English."
 
 "Nice. …wait, does that mean Alexey knows English, too? I should ask him about it."
 
-Sofia saw an opening to ask a few questions about her alternate self. She had been too polite to express it thus far, but she was intensely curious about Alexey. How would she have turned out, had she been born a boy?
+Sofia saw an opening to ask a few questions about her alternate self. She had been too polite to express it thus far, but she was intensely curious about Alexey. How would she have turned out, had she been born a boy? It was something she had already thought about long ago, years before she'd learned of Alexey's existence. She supposed that spending a childhood groomed to be the heiress to a powerful and restrictive family legacy naturally made one wonder about the alternatives.
 
 <br />
 
