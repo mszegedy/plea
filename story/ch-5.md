@@ -126,7 +126,7 @@ Meanwhile, Vasilisa was poking around in the Shchavel House study, eyeing works 
 
 "Okay… I guess."
 
-Sofia detected more than a little disappointment in Vasilisa. "Look, if you want to read about shapeshifting, we have whole shelves of books on that. The one my mom made me read was…" She strode across the room to the section of recently published grimoires. She selected a relatively thin hardcover textbook, bound in purple gloss and poor typography, the cardboard on its corners visibly frayed. "This. _The mind that seeks to replace itself_, by Maria Szegedy. I think it was published only about four years ago."
+Sofia detected more than a little disappointment. "Look, if you want to read about shapeshifting, we have whole shelves of books on that. The one my mom made me read was…" She strode across the room to the section of recently published grimoires. She selected a relatively thin hardcover textbook, bound in purple gloss and poor typography, the cardboard on its corners visibly frayed. "This. _The mind that seeks to replace itself_, by Maria Szegedy. I think it was published only about four years ago."
 
 "That's kind of a dramatic title for a textbook."
 
