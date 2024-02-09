@@ -72,7 +72,31 @@ As one who's normally not had much trouble with social interactions, this was a 
 
 Her first stop was a small mom-and-pop pharmacy off of Republic Street. Pharmacies in Russia didn't typically ask for prescriptions, even for medications that were mandated by law as prescription-only, but Artemis was already very worried about the possibility. She had no plan for what to do in the case that they did ask, other than to conduct an armed robbery by means of the metal idol she was still clutching. It was true that it had never happened before in her entire past lifetime, but maybe the anxiety hedgehog (the phrase she had taken to thinking of the hedgehog idol by) would make the pharmacist unnaturally hostile to her like it did the phantoms in the crowd.
 
-Artemis entered the pharmacy. She had a hard time telling, but it seemed deserted of customers besides the phantom crowd, as usual. The original, idly judgemental Artemis not completely suppressed by the idol, she wondered how the pharmacy stayed in business.
+Artemis entered the pharmacy. She had a hard time telling, but its thirty or so square meters of bare linoleum floor seemed deserted of customers besides the phantom crowd, as usual. The original, idly judgemental Artemis not completely suppressed by the idol, she wondered how the pharmacy stayed in business.
+
+The phantoms seemed to be trying to stand in line at the counter, completely unheeded by the cashier. Artemis decided that she shouldn't feel remorseful pushing them out of the way so that she might take her turn.
+
+"Um, hi, uh, excuse me?" she asked the pharmacist, muscling aside two phantoms. "Fuck off, wait your turn!" the one closer to the front of the line admonished, with the same deadened tone as the others used.
+
+The pharmacist looked up. "…good day? What can I do for you, sir?"
+
+The last word drove a stake through Artemis's heart. What more could she possibly do to appear female? She was unwilling to compromise her pageboy haircut or her leather jacket and pants, but her voice and contours should have been enough for anyone. Idol or no idol, Artemis spent a lot of time and thought worrying about this, and the blow destroyed her already fragile concentration. She tried to piece it back together.
+
+"Uh, um, hold on, let me get my list… I mean I'm picking up for family, so it's a lot…"
+
+She frantically rooted around in the inside pockets of her coat and found a page.
+
+"Oh… this is my grocery list… sorry, hold on, just one more moment." In retrospect, it seemed stupid to have two separate pages, but that was how the lists had gotten made. Artemis knew they must be in the same pocket…
+
+"Hurry up, asshole! First you _cut_ the line, then you _hold up the line?_ I hope you get AIDS and die, you piece of shit," yelled one of the phantoms from the back of the line. Artemis tried desperately to remind herself that it wasn't real, but failed to shrug off the insult.
+
+"I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages.
+
+"Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, injectable leuprorelin… uh, do you have all those?"
+
+The cashier stared at her.
+
+"Sir… this is the bakery. The pharmacy is next door."
 
 <br />
 
