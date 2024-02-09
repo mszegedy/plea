@@ -94,7 +94,55 @@ She frantically rooted around in the inside pockets of her coat and found a page
 
 The cashier stared at her.
 
-"Sir… this is the bakery. The pharmacy is next door."
+<div>"Sir… this is the bakery. The pharmacy is next door."</div>
+
+<br />
+
+---
+
+<br />
+
+Meanwhile, Vasilisa was poking around in the Shchavel House study, eyeing works such as a small sheaf of papers stapled together titled "Unicorn, Mammoth, Whale: mythological and etymological connections of zoonyms in North and East Asia" in English, by one Juha Janhunen, or a leather-bound volume of yellowed pages with a glossy inset, titled _The Dubrovka collection: Northern spirits writ in birchbark_, by Yuvan Shestalov.
+
+"So… if I wanted to learn magic, where would I start?" she asked Sofia.
+
+"You should probably start with _Metamorphoses_," said Sofia, fetching a pile of typewritten papers, bound with bulldog clips, from the bookshelf that bore works written by the Ryzhayas themselves. The letters were faded, and it was rich with proof-reading marks and hand-drawn glyphs in much more vibrant blue ink.
+
+"Like… the Latin thing?"
+
+"No, it was written by a Ryzhaya. The first Ryzhaya, actually. It's, like, the Ryzhaya instruction manual. It's about binding disease spirits, and taming abominations, told in the form of an autobiographical song. Not that anyone remembers the melody."
+
+"…the Latin thing was written by a _Ryzhaya?_"
+
+"This isn't the same text! They just have the same name! I mean, I think the Latin one is somewhere around here, too. Hopefully on the classical Western literature shelf. If you care."
+
+"Not really."
+
+"Good. Anyway, so, Ryzhaya's words (or I think she was called Marsymyaku) were originally sung in really archaic Nganasan, but this version has translations and annotations in Old Komi by her great-granddaughter H"andula"amyaku, so you should get out the translators for both… shoot, I never explained this, but we have spirits we trained to translate stuff, I'll show you. I think it was Anna's idea to call it _Metamorphoses_, by the way. I'm not sure she knew that that was already a thing."
+
+"Okay. Um. Why is it called _Metamorphoses_ if there's nothing about shapeshifting in it?"
+
+"It's about turning diseases into advantages. How is that not a metamorphosis?"
+
+"Okay… I guess."
+
+Sofia detected more than a little disappointment in Vasilisa. "Look, if you want to read about shapeshifting, we have whole shelves of books on that. The one my mom made me read was…" She strode across the room to the section of recently published grimoires. She selected a relatively thin hardcover textbook, bound in purple gloss and poor typography, the cardboard on its corners visibly frayed. "This. _The mind that seeks to replace itself_, by Maria Szegedy. I think it was published only about four years ago."
+
+"That's kind of a dramatic title for a textbook."
+
+Sofia shrugged, trying not to dwell on uncomfortable memories. "Yeah, the author was a bit… weird. Like a fifth of the book is just her going on about how shapeshifting reveals something deep about our souls, or whatever. You can just skip those parts, they're not important."
+
+Vasilisa snorted. "If _I_ wrote that book, fully _half_ of it would be metaphysical wanking. I'm reading all of it."
+
+"Well, it's your choice. Don't say I didn't warn you. But yeah, before you get into it, you should read _Metamorphoses_ first. It's a lot shorter, and covers a lot more basic stuff."
+
+Vasilisa nodded. "Work before play." She looked at _The mind that seeks to replace itself_ and frowned. "This is in English."
+
+"We have a translator for that, too. Though I've never needed it. My mom taught me English."
+
+"Nice. …wait, does that mean Alexey knows English, too? I should ask him about it."
+
+Sofia saw an opening to ask a few questions about her alternate self. She had been too polite to express it thus far, but she was intensely curious about Alexey. How would she have turned out, had she been born a boy?
 
 <br />
 
