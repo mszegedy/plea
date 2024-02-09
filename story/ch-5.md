@@ -88,7 +88,7 @@ She frantically rooted around in the inside pockets of her coat and found a page
 
 "Oh… this is my grocery list… sorry, hold on, just one more moment." In retrospect, it seemed stupid to have two separate pages, but that was how the lists had gotten made. Artemis knew they must be in the same pocket…
 
-"Hurry up, asshole! First you _cut_ the line, then you _hold up the line?_ I hope you get AIDS and die, you piece of shit," yelled one of the phantoms from the back of the line. Artemis tried desperately to remind herself that it wasn't real, but failed to completely shrug off the insult. Her already frantic search became manic.
+"Hurry up, asshole! First you _cut_ the line, then you _hold up the line?_ I hope you get cancer and die, you piece of shit," yelled one of the phantoms from the back of the line. Artemis tried desperately to remind herself that it wasn't real, but failed to completely shrug off the insult. Her already frantic search became manic.
 
 "I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages.
 
