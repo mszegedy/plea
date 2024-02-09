@@ -90,9 +90,7 @@ She frantically rooted around in the inside pockets of her coat and found a page
 
 "Hurry up, asshole! First you _cut_ the line, then you _hold up the line?_ I hope you get cancer and die, you piece of shit," yelled one of the phantoms from the back of the line. Artemis tried desperately to remind herself that it wasn't real, but failed to completely shrug off the insult. Her already frantic search became manic.
 
-"I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages.
-
-"Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, bicalutamide, needles… uh, do you have all those? I can give the dosages and gauges."
+"I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages. "Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, bicalutamide, needles… uh, do you have all those? I can give the dosages and gauges."
 
 The cashier stared at her.
 
