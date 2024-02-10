@@ -142,7 +142,7 @@ Vasilisa nodded. "Work before play." She looked at the shapeshifting textbook an
 
 "Nice. …wait, does that mean Alexey knows English, too? I should ask him about it."
 
-Sofia saw an opening to ask a few questions about her alternate self. She had been too polite to express it thus far, but she was intensely curious about Alexey. How would she have turned out, had she been born a boy? It was something she had already thought about long ago, years before she'd learned of Alexey's existence. She supposed that spending a childhood groomed to be the heiress to a powerful and restrictive family legacy naturally made one wonder about the alternatives.
+This seemed to Sofia a good opening to ask a few questions about her alternate self. She had been too polite to express it thus far, but she was intensely curious about Alexey. How would she have turned out, had she been born a boy? It was something she had already thought about long ago, years before she'd learned of Alexey's existence. She supposed that spending a childhood groomed to be the heiress to a powerful and restrictive family legacy naturally made one wonder about the alternatives.
 
 <br />
 
