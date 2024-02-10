@@ -176,7 +176,7 @@ Sofia smiled. "That's the Ryzhaya throne, if there ever was one. Sure, go ahead.
 
 "…why is there even a translator idol for that here?" asked Vasilisa, barely knowing who the Mayans even were.
 
-"My grandmother, Anna Vasilyevna, had a small obsession with Central American civilizations," explained Sofia. "If we look at her part of the Ryzhaya bookshelf… yup, here we go. The _Codex Tezcatlipoca_," she said, unfurling a poster with some vaguely circular scribbles on it.
+"My grandmother, Anna Vasilyevna, had a small obsession with American civilizations," explained Sofia. "If we look at her part of the Ryzhaya bookshelf… yup, here we go. The _Codex Tezcatlipoca_," she said, unfurling a poster with some vaguely circular scribbles on it.
 
 "This is a Mayan book?" asked Vasilisa in wonder.
 
