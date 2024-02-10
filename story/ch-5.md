@@ -194,7 +194,7 @@ Sofia considered for several long seconds. "Well… how about this: read _Metamo
 
 <br />
 
-Through great effort, Artemis eventually managed to correctly locate the pharmacy, and retrieve every item on her list of medications. She was unreasonably relieved because of this, and had grown slightly more tolerant of the crowd she was still in. She no longer had to worry about being asked to present a prescription, or the pharmacy being out of something she or one of her friends needed to live. Now all she needed to do was go buy some kitchen supplies at
+Through great effort, Artemis eventually managed to correctly locate the pharmacy, and retrieve every item on her list of medications. She was unreasonably relieved because of this, and had grown slightly more tolerant of the crowd she was still in. She no longer had to worry about being asked to present a prescription, or the pharmacy being out of something she or one of her friends needed to live. Now all she needed to do was go buy some kitchen supplies and bulk groceries at Eurosmak, and who had ever heard of a wholesale warehouse store being out of rice?
 
 <br />
 
