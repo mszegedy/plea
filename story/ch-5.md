@@ -144,6 +144,38 @@ Vasilisa nodded. "Work before play." She looked at the shapeshifting textbook an
 
 This seemed to Sofia a good opening to ask a few questions about her alternate self. She had been too polite to express it thus far, but she was intensely curious about Alexey. How would she have turned out, had she been born a boy? It was something she had already thought about long ago, years before she'd learned of Alexey's existence. She supposed that spending a childhood groomed to be the heiress to a powerful and restrictive family legacy naturally made one wonder about the alternatives.
 
+"So, Alexey, he… when did you meet him?" asked Sofia.
+
+Vasilisa glanced at her. "Like, two years ago? No, wait, wow, three. We met at Purtov House. The, um, homeless—"
+
+"Yes, I'm familiar with the Purtovs. You stayed there?"
+
+"Well… no. We met in the parking lot, actually, when applying to stay. They wouldn't let me in, on account of… uh… they thought I was a gay man, and the Purtovs don't… yeah. They didn't let Alexey in, either, because of his self-harm scars. They would have let Artemis in, but she didn't want to leave Alexey, and Tosha didn't even apply but I didn't want to leave him, so, the four of us decided to live together. First off of Artemis's savings, but then me and Alexey got jobs."
+
+"…what job did Alexey get?" Sofia suddenly realized that being overtly more interested in Alexey might be a mistake. "Sorry, I mean, tell me about yourself, too, I'm just curious about Alexey because, you know…"
+
+"I get it," said Vasilisa. "You're, like, a princess or something, and you wanna know what you could have been instead of a princess, right? Well, Alexey got a job as a bookbinder. And I got a job as a telephone operator. He got fired after a couple months for showing up late too much. Me and Artemis have been trying to find him jobs ever since then, but nothing really clicked. I quit the telephone gig only like a month ago, 'cause I was fed up with getting yelled at all day. I have a nice gig lined up at Purtov House as a sauna operator. A guy I made friends with while I was homeless works there now, and he said he's sure he could get me a job there."
+
+Vasilisa noticed Sofia's eyes wandering. "But, uh… I guess that's all pretty boring, 'cause it doesn't involve Alexey much, right? Sorry, uh, lemme think… he—"
+
+"No, it's okay," interrupted Sofia. "I understand. Getting a job isn't simple. And holding one isn't either. I was mistaken to think that Alexey might be defined by his job like I am."
+
+"Yeah," admitted Vasilisa. "That's a pretty elegant way of putting it. You know, I dunno _what_ Alexey's deal is. What his, like, goals are in life. I mean, we don't all have to have 'em, but… a lot of days, he wouldn't even leave his room. He didn't… read and write all day, like me…" She felt a pang of regret at the loss of her life's writings, and a new flare of indignation at Tosha's dismissal of her feelings last night. "I know he used to pray a lot. And, well… cut. But I think he stopped doing both of those this year. Where _was_ he? Was he sleeping?"
+
+Sofia frowned. Vasilisa was obviously expecting her to provide some insight here, but she didn't have too many memories of free time, either. The most familiar form of free time to her was hours stolen out of the night to secretly lie awake in bed instead of sleeping, contemplating fantasies of a more pleasant existence, or sometimes ruminating on her failures. Some nights, she'd spend hours crying instead of sleeping, wishing that she were someone, somewhere else.
+
+"I… have no idea," said Sofia. "Maybe we could ask him when he wakes up?"
+
+"Sure, I guess," replied Vasilisa, unconvinced.
+
+A silence followed.
+
+"I'm just gonna keep reading here, if you don't mind," said Vasilisa. "Is it okay if I use the study desk? That chair looks comfy," she said, pointing to the expansive gray reindeer leather armchair behind the desk.
+
+Sofia smiled. "That's the Ryzhaya throne, if there ever was one. Sure, go ahead. The translator idols are in the desk drawers. They should all be labelled. The ones in the bottom drawer aren't fully trained yet, and the one for Classical Mayan doesn't work at all."
+
+"…why is there even a translator idol for that here?" asked Vasilisa, barely knowing who the Mayans even were.
+
 <br />
 
 <!--
