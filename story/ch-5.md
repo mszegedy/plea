@@ -90,7 +90,7 @@ She frantically rooted around in the inside pockets of her coat and found a page
 
 "Hurry up, asshole! First you _cut_ the line, then you _hold up the line?_ I hope you get cancer and die, you piece of shit," yelled one of the phantoms from the back of the line. Artemis tried desperately to remind herself that it wasn't real, but failed to completely shrug off the insult. Her already frantic search became manic.
 
-"I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages. "Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, bicalutamide, needles… uh, do you have all those? I can give the dosages and gauges."
+"I… I-I can't f-find it, I'm so sorry, I knew it was here somewhere…" Then she noticed the grocery list she was holding was actually made of two pages. "Wait! I've got it! Uh, I need lithium citrate, sertraline, bupropion, escitalopram, mirtazapine, lamotrigine, injectable estradiol valerate, injectable testosterone, bicalutamide, needles… uh, do you have all those? I can give the dosages and gauges, and, uh, amounts."
 
 The cashier stared at her.
 
@@ -175,6 +175,26 @@ A silence followed.
 Sofia smiled. "That's the Ryzhaya throne, if there ever was one. Sure, go ahead. The translator idols are in the desk drawers. They should all be labelled. The ones in the bottom drawer aren't fully trained yet, and the one for Classical Mayan doesn't work at all."
 
 "…why is there even a translator idol for that here?" asked Vasilisa, barely knowing who the Mayans even were.
+
+"My grandmother, Anna Vasilyevna, had a small obsession with Central American civilizations," explained Sofia. "If we look at her part of the Ryzhaya bookshelf… yup, here we go. The _Codex Tezcatlipoca_," she said, unfurling a poster with some vaguely circular scribbles on it.
+
+"This is a Mayan book?" asked Vasilisa in wonder.
+
+Sofia snorted. "Hardly. If I remember correctly, it's an Aztec calendar, or something. Except she got a spirit to copy it out of a library in Austria, and spirits _suck_ at drawing. Look at that thing," she said, pointing to a misshapen nub on a humanoid figure. "That's supposed to be a hand."
+
+Vasilisa grew a little concerned. "Is there, like, a book here on what spirits can and can't do? I don't really get why they can do all this supernatural crap but then they fuck up something like drawing hands. Is Artemis _safe?_ From the spirits she's carrying?"
+
+Sofia considered for several long seconds. "Well… how about this: read _Metamorphoses,_ okay? Then, if you have any questions about how spirits work, come to me and I'll try to answer them. I wouldn't have sent Artemis out there with those spirits if it wasn't safe. And I think she's probably doing perfectly fine right now. After all, she seems to me a very strong person, and the anxiety spirit she's carrying isn't very harmful."
+
+<div>Vasilisa nodded hesitantly.</div>
+
+<br />
+
+---
+
+<br />
+
+Through great effort, Artemis eventually managed to correctly locate the pharmacy, and retrieve every item on her list of medications. She was unreasonably relieved because of this, and had grown slightly more tolerant of the crowd she was still in. She no longer had to worry about being asked to present a prescription, or the pharmacy being out of something she or one of her friends needed to live. Now all she needed to do was go buy some kitchen supplies at
 
 <br />
 
