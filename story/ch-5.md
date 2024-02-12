@@ -196,7 +196,51 @@ Sofia considered for several long seconds. "Well… how about this: read _Metamo
 
 Through great effort, Artemis eventually managed to correctly locate the pharmacy, and retrieve every item on her list of medications. She was unreasonably relieved because of this, and had grown slightly more tolerant of the crowd. She no longer had to worry about being asked to present a prescription, or the pharmacy being out of something she or one of her friends needed to live. Now all she needed to do was go buy some kitchen supplies and bulk groceries at Eurosmak, and who had ever heard of a wholesale warehouse store being out of rice?
 
-Unlike the pharmacy, Eurosmak was located directly on Republic Street, and its sheer size and distinctive dark blue paint job made it impossible to miss. It was a box constructed out of corrugated steel, a hallmark of newer buildings that sprang up as Keleykh slowly industrialized. The actual owner of the warehouse probably lived in a rich western city such as Moscow or Tsaritsyn, but the local manager was, miserably, paying goodwill fees to three separate factions in Keleykh just to keep his job, one of them being the Sump. He had been ordered to be on the lookout for a boy with a lot of dark hair and a lot of leather, calling himself "Artemis". In fact, he knew Artemis very well, as she'd been making food runs for the matchbox house for the better part of two years now, always from his store. He secretly hoped that Artemis would never show up. He hadn't had many conversations with her; the most drawn out one had involved him explaining to her the virtues of being an Old Believer as he helped her bring her groceries to her car, and her asking polite questions.
+Unlike the pharmacy, Eurosmak was located directly on Republic Street, and its sheer size and distinctive dark blue paint job made it impossible to miss. It was a box constructed out of corrugated steel, a hallmark of newer buildings that sprang up as Keleykh slowly industrialized. The actual owner of the warehouse probably lived in a rich western city such as Moscow or Tsaritsyn, but the local manager was, miserably, paying goodwill fees to three separate factions in Keleykh just to keep his job, one of them being the Sump. He had been ordered to be on the lookout for a boy with a lot of dark hair and a lot of leather, calling himself "Artemis", in addition to a number of other young adults.
+
+In fact, he knew Artemis very well, as she'd been making food runs for the matchbox house for the better part of two years now, always from his store. He secretly hoped that Artemis would never show up. He hadn't had many conversations with her; the most drawn out one had been their first ever meeting, in which he explained to her the virtues of being an Old Believer as he helped her bring her groceries to her car, to which Artemis had asked polite questions to show she was listening. Privately, he liked to imagine that he'd made an impression on her, and had passed some of his self on to the next generation. Artemis, on her part, had forgotten the details of the conversation, but had appreciated the man for being friendly towards and unafraid of her, early into her transition, and always greeted him warmly thereafter. He knew that the Sump's request meant that Artemis was in a great deal of trouble with them, but he also knew they had mysterious, magical ways of finding out whether he'd been obedient, and was unwilling to go so far as to sacrifice himself or his livelihood for the sake of a girl who was, ultimately, not a close friend or relative of his.
+
+As a result of the Sump's mandate, he currently sat on a stool a ways behind the cash desk, watching each customer in turn as they interacted with the lone cashier. He could have done the job himself, but the cashier was already here, so why not? He enjoyed watching each person, imagining what they might be making with the food they bought, and what their life might be like based on the clothes they wore. The lady he was watching wore a luxurious brown mink stole, and was buying large quantities of salmon roe, raw fish, and seaweed, in addition to a bottle of soy sauce. A socialite, planning a Japanese-themed dinner, maybe? They would need rice for it, but perhaps they already had that at home.
+
+<div>The next customer… he frowned. The next customer was wearing black leather, and definitely had dark hair, but they were mostly blocked from view by the cashier. He craned his neck a little to see, but the customer was shifting around nervously, seemingly shrinking as they stammered something or other to the cashier. The manager hopped off his stool to get a better look, but just at that moment, the customer dropped some of their coins on the floor, and bent down to pick them up, hiding them from view entirely. Not wanting to be caught staring at a customer, the manager sat back onto his stool. By the time he focussed his attention back on the counter, the customer had already gone.</div>
+
+<br />
+
+---
+
+<br />
+
+<div>Artemis hauled a bag of rice out the doorway of Eurosmak in two outstretched arms, a number of other basic products perched on top of it, including a heavy, rectangular Chinese vegetable knife for good measure. Her heart was pounding, but she was buoyed by the fact that she had successfully gotten everything she needed without any major obstacles, and on the quickest and simplest way home, back up Republic Street, with only a single final left turn to bring her to Shchavel House. She only needed to keep going forward.</div>
+
+<br />
+
+---
+
+<br />
+
+"Hey, Sofia?" asked Vasilisa. She'd come downstairs from the study to find Alexey, Tosha, and Sofia huddled around the fire together, making small talk.
+
+"Mm-hmm? What is it?"
+
+"Can Artemis turn the idol off? Like, if the disease's effects are getting too bad? Because I've been reading the _Metamorphoses_, and it doesn't mention it anywhere."
+
+"Well, no, of course not. These spirits aren't _machines,_ they're like… trained animals. Like dogs. Can you turn a herding dog off?"
+
+"Oh… I see. So what do you do if it starts overwhelming you?"
+
+"You get someone else to help you with it."
+
+<div>"Oh."</div>
+
+<br />
+
+---
+
+<br />
+
+Artemis sat on the curb, trying very hard but failing to catch her breath. Her face was buried in her arms, so that none would see it. She wanted to disappear, she wanted to not be perceived, she wanted to not exist. Not like this. She thought about every flaw in her presentation, every bit of her that was coded more masculine than feminine. Individual little protrusions of bone and cartilage, third-decimal-place deviations in her body measurements, a lack of makeup or traditionally feminine clothing, every breath she took that flowed past a larynx which wasn't shaped right… it was all on the table and it was all made of things she desperately didn't want to expose to the world right now. Maybe if she just sat here long enough, all the people would go away and nobody would have to see her and then she'd go home…
+
+She kept sitting.
 
 <br />
 
