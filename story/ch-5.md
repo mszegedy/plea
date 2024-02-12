@@ -178,7 +178,7 @@ Sofia smiled. "That's the Ryzhaya throne, if there ever was one. Sure, go ahead.
 
 "This is a Mayan book?" asked Vasilisa in wonder.
 
-Sofia snorted. "Hardly. If I remember correctly, it's an Aztec calendar, or something. Except she got a spirit to copy it out of a library in Austria, and spirits _suck_ at drawing. Look at that thing," she said, pointing to a misshapen nub on a humanoid figure. "That's supposed to be a hand."
+Sofia snorted. "Hardly. If I remember correctly, it's an Aztec calendar, or something. Except she got a spirit to copy it out of a library in Austria, and spirits are _awful_ at drawing. Look at that thing," she said, pointing to a misshapen nub on a humanoid figure. "That's supposed to be a hand."
 
 Vasilisa grew a little concerned. "Is there, like, a book here on what spirits can and can't do? I don't really get why they can do all this supernatural crap but then they fuck up something like drawing hands. Is Artemis _safe?_ From the spirits she's carrying?"
 
