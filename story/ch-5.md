@@ -70,7 +70,7 @@ As one who's normally not had much trouble with social interactions, this was a 
 
 Her first stop was a small mom-and-pop pharmacy off of Republic Street. Pharmacies in Russia didn't typically ask for prescriptions, even for medications that were mandated by law as prescription-only, but Artemis was already very worried about the possibility. She had no plan for what to do in the case that they did ask, other than to conduct an armed robbery by means of the metal idol she was still clutching. It was true that it had never happened before in her entire past lifetime, but maybe the anxiety hedgehog (the phrase she had taken to thinking of the hedgehog idol by) would make the pharmacist unnaturally hostile to her like it did the phantoms in the crowd.
 
-Artemis entered the pharmacy. She had a hard time telling, but its thirty or so square meters of bare wooden floor seemed deserted of customers besides the phantom crowd, as usual. The original, idly judgemental Artemis not completely suppressed by the idol, she wondered how the pharmacy stayed in business.
+Artemis entered the pharmacy. She had a hard time telling through the phantom crowd, but its thirty or so square meters of bare wooden floor seemed deserted of customers, as usual. The original, idly judgemental Artemis not completely suppressed by the idol, she wondered how the pharmacy stayed in business.
 
 The phantoms seemed to be trying to stand in line at the counter, completely unheeded by the cashier. Artemis decided that she shouldn't feel remorseful pushing them out of the way so that she might take her turn.
 
