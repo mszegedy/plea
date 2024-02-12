@@ -184,7 +184,7 @@ Sofia snorted. "Hardly. If I remember correctly, it's an Aztec calendar, or some
 
 Vasilisa grew a little concerned. "Is there, like, a book here on what spirits can and can't do? I don't really get why they can do all this supernatural crap but then they fuck up something like drawing hands. Is Artemis _safe?_ From the spirits she's carrying?"
 
-Sofia considered for several long seconds. "Well… how about this: read _Metamorphoses,_ okay? Then, if you have any questions about how spirits work, come to me and I'll try to answer them. I wouldn't have sent Artemis out there with those spirits if it wasn't safe. And I think she's probably doing perfectly fine right now. After all, she seems to me a very strong person, and the anxiety spirit she's carrying isn't very harmful."
+Sofia considered for several long seconds. "Well… how about this: read _Metamorphoses,_ okay? Then, if you have any questions about how spirits work, come to me and I'll try to answer them. I wouldn't have sent Artemis out there with those spirits if I didn't think it was safe. And I think she's probably doing perfectly fine right now. After all, she seems to me a very strong person, and the anxiety spirit she's carrying isn't very harmful. And if anything does go wrong, don't forget, the mosquitos will tell us."
 
 <div>Vasilisa nodded hesitantly.</div>
 
