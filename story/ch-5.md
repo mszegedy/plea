@@ -208,7 +208,9 @@ As a result of the Sump's mandate, he currently sat on a stool a ways behind the
 
 <br />
 
-<div>Artemis hauled a bag of rice out the doorway of Eurosmak in two outstretched arms, a number of other basic products perched on top of it, including a heavy, rectangular Chinese vegetable knife for good measure. Her heart was pounding, but she was buoyed by the fact that she had successfully gotten everything she needed without any major obstacles, and on the quickest and simplest way home, back up Republic Street, with only a single final left turn to bring her to Shchavel House. She only needed to keep going forward.</div>
+Artemis hauled a bag of rice out the doorway of Eurosmak in two outstretched arms, a number of other basic products perched on top of it, including a heavy, rectangular Chinese vegetable knife for good measure. Her heart was pounding, but she was buoyed by the fact that she had successfully gotten everything she needed without any major obstacles, and was on the quickest and simplest way home, back up Republic Street, with only a single final left turn to bring her to Shchavel House. She only needed to keep going forward.
+
+<div>She strode forth confidently, directly into a woman who was, by all appearances, very real.</div>
 
 <br />
 
