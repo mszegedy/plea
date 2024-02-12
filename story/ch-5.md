@@ -156,7 +156,7 @@ Vasilisa glanced at her. "Like, two years ago? No, wait, wow, three. We met at P
 
 Vasilisa noticed Sofia's eyes wandering. "But, uh… I guess that's all pretty boring, 'cause it doesn't involve Alexey much, right? Sorry, uh, lemme think… he—"
 
-"No, it's okay," interrupted Sofia. "I understand. Getting a job isn't simple. And holding one isn't either. I was mistaken to think that Alexey might be defined by his job like I am."
+"No, it's okay," interrupted Sofia. "I understand. Getting a job isn't simple. And holding one isn't either. I was mistaken to think that Alexey might be defined by his social status like I am."
 
 "Yeah," admitted Vasilisa. "That's a pretty elegant way of putting it. You know, I dunno _what_ Alexey's deal is. What his, like, goals are in life. I mean, we don't all have to have 'em, but… a lot of days, he wouldn't even leave his room. He didn't… read and write all day, like me…" She felt a pang of regret at the loss of her life's writings, and a new flare of indignation at Tosha's dismissal of her feelings last night. "I know he used to pray a lot. And, well… cut. But I think he stopped doing both of those this year. Where _was_ he? Was he sleeping?"
 
