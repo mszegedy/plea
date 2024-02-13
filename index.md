@@ -7,13 +7,23 @@ author: Maria Szegedy
 
 — Thalber Mitaclau, my friend
 
-I was inspired by [*Pact*](https://pactwebserial.wordpress.com/) by John C. McCrae (aka Wildbow). I wish it did some things differently and I have issues with McCrae as an author, but there are valuable concepts in the story. I am therefore writing an adaptation. It is to put all of the feelings into words that I normally don't; in other words, it is a vent. Instead of being set in suburban Ontario, it is set where my nightmares are, a synthesis of Western Siberia and especially traumatic places I've lived, with confusing and scary post-post-apocalyptic elements. In this case, I decided to specifically combine Salekhard and Berkeley, because I have not at all forgiven Berkeley for everything that has happened to me and my friends, and Salekhard is in a geographically similar situation and a place I think about often. There is some irony in placing Berkeley in Russia, but I'd rather my story speak for itself in that respect.
+I was inspired by [*Pact*](https://pactwebserial.wordpress.com/) by John C. McCrae (aka Wildbow). I wish it did some things differently and I have issues with McCrae as an author, but there are valuable concepts in the story. I am therefore writing an adaptation. 
 
-*Plea* is therefore set in "Keleykh". It is supposed to be both scarier and happier than *Pact*. Only time will tell if I accomplished that.
+In Berkeley and in Western Siberia live both people I care about and people who have killed people I care about. So I still visit these places and people in my nightmares, because I haven't forgiven them, and haven't forgiven myself. There are worlds of tragedy there that I have experienced that I haven't properly been able to express in any other way. So, I am expressing them here. _Plea to the Moon-Mother_ is set in a blend of Berkeley and Salekhard: Keleykh. The similarities go beyond both being located inside oceanic bays, and I hold that there is deep irony in placing Berkeley in Russia. But I'd rather my story speak for itself in that respect.
 
-**CONTENT WARNING: Suicide, self-harm, transphobia, abusive parenting, cults, not having a safe place to live, seeing loved ones die.**
+_Plea to the Moon-Mother_ is supposed to be both scarier and happier than *Pact*. Only time will tell if I accomplished that.
 
-## Index
+## **CONTENT WARNINGS**
+- Suicide
+- Self-harm
+- Transphobia
+- Abusive parenting
+- Cults
+- Not having a safe place to live
+- Seeing loved ones die
+- HIV mention
+
+## **INDEX**
 ### PART I: Alexey Pankratyevitch Balandin
 
 [**Chapter 1**](story/ch-1.html)
