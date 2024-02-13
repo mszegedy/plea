@@ -1,5 +1,5 @@
 ---
-title: Plea to the Moon-Mother
+title: Index
 author: Maria Szegedy
 ---
 
@@ -21,17 +21,17 @@ _Plea to the Moon-Mother_ is supposed to be both scarier and happier than *Pact*
 - Cults
 - Not having a safe place to live
 - Seeing loved ones die
-- HIV mention
+- Mentions and often portrayals of numerous illnesses of various kinds, including e.g. AIDS, chronic pain, cancer
 
-## **INDEX**
+## **CONTENTS**
 ### PART I: Alexey Pankratyevitch Balandin
 
-[**Chapter 1**](story/ch-1.html)
+[Chapter 1](story/ch-1.html)
 
-[**Chapter 2**](story/ch-2.html)
+[Chapter 2](story/ch-2.html)
 
-[**Chapter 3**](story/ch-3.html)
+[Chapter 3](story/ch-3.html)
 
-[**Chapter 4**](story/ch-4.html)
+[Chapter 4](story/ch-4.html)
 
-[**Chapter 5**](story/ch-5.html)
+[Chapter 5](story/ch-5.html)
