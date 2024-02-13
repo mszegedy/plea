@@ -21,7 +21,7 @@ _Plea to the Moon-Mother_ is supposed to be both scarier and happier than *Pact*
 - Cults
 - Not having a safe place to live
 - Seeing loved ones die
-- Mentions and often portrayals of numerous illnesses of various kinds, including e.g. AIDS, chronic pain, cancer
+- Mentions and often portrayals of numerous illnesses of various kinds, including e.g. AIDS, chronic pain, cancer, generalized anxiety disorder
 
 ## **CONTENTS**
 ### PART I: Alexey Pankratyevitch Balandin
