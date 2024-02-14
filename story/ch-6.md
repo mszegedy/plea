@@ -118,7 +118,7 @@ Alexey raised an eyebrow. "A god?"
 
 "Someone to shamanize to. You know. Someone who likes me? Please tell me someone likes me."
 
-"I..." What was Alexey supposed to say here? "I think the Moon-Mother likes _me._ I mean, she never granted any of my wishes, I think, but they were dumb wishes anyway. She was probably just looking out for me. I've prayed to her a lot, and made sacrifices to her. Maybe... just shamanize to her, alright? Tell her you're a friend of mine and you're trying to help me."
+"I..." What was Alexey supposed to say here? "I think the Moon-Mother likes _me._ I mean, she never granted any of my wishes, I think, but they were dumb wishes anyway. She was probably just looking out for me. I've prayed to her a lot, and made sacrifices to her. Maybe..." He bit his lip meditatively. "Just shamanize to her, alright? Tell her you're a friend of mine and you're trying to help me."
 
 Vasilisa sensed that Alexey was making an effort to be more vulnerable than usual here. "Alright, thanks. I totally will. I totally appreciate how... thank you. Really. Hug?"
 
