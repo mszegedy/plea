@@ -244,6 +244,10 @@ She kept sitting.
 
 <br />
 
+[**Next**](ch-6.html)
+
+<br />
+
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
