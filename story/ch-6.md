@@ -158,7 +158,7 @@ Alexey and Vasilisa sat down in front of the fire while they waited.
 
 "Nice," said Vasilisa. "Can't wait for you to make that garlic-and-cilantro jelly shroom dish again. I could eat that for days."
 
-"We'll have to forage," said Tosha seriously."
+"We'll have to forage," said Tosha seriously.
 
 "Oh, yeah, can I hug you?"
 
