@@ -298,9 +298,9 @@ This immediately inspired Alexey, ever the pathological pessimist, to begin cont
 
 "...go save them? Obviously?"
 
-"Okay, look, here's an analogy. Your friend is being chased by a bear. The bear is angry at your friend and can't be scared away. How do you help your friend? Can you help them run faster?"
+"Okay, look, here's an analogy. Your friend is being chased by a bear. The bear is angry at your friend and can't be scared away. How do you help your friend? Can you help them run faster? No, you can't, unless you can pick them up and carry them, and you definitely can't here."
 
-"Do Artemis and Vasilisa _know_ they should run away?"
+"Do Artemis and Vasilisa _know_ they should run away?" asked Alexey.
 
 <div>"Well," grimaced Sofia, "If they didn't know it yet, they're going to find it out very, very quickly."</div>
 
