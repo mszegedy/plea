@@ -188,7 +188,7 @@ Vasilisa nodded. "Thanks. Thanks for, like, helping out, and being a generally c
 
 Sofia groaned. She understood exactly why she was hearing this. "Just get her and come back! You'll be _fine._"
 
-<div>Vasilisa smiled, and gave a mock salute before disappearing out the door.</div>
+<div>Vasilisa smiled, buttoned her puffy butter-colored parka, and gave a mock salute before disappearing out the door.</div>
 
 <br />
 
