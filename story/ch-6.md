@@ -302,7 +302,7 @@ This immediately inspired Alexey, ever the pathological pessimist, to begin cont
 
 "Do Artemis and Vasilisa _know_ they should run away?" asked Alexey.
 
-<div>"Well," grimaced Sofia, "If they didn't know it yet, they're going to find it out very, very quickly."</div>
+<div>"Well," replied Sofia darkly, "If they didn't know it yet, they're going to find it out very, very quickly."</div>
 
 <br />
 
