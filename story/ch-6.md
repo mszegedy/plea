@@ -198,7 +198,7 @@ Sofia groaned. She understood exactly why she was hearing this. "Just get her an
 
 > A daughter [of mine] won't ask only for the favor of gods. She will ask for the favor of the sick.
 
-— Marsymyaku (ed H"andula"amyaku)
+— _Metamorphoses_ by Marsymyaku (ed H"andula"amyaku)
 
 Slipped away. Artemis had slipped away out of the world, like she'd wanted to. She was floating in darkness. The darkness tasted like crude oil.
 
