@@ -318,7 +318,7 @@ A hedgehog. No larger than any ordinary hedgehog. But it was made of splinters o
 
 She understood that this was her fault. The spirit was angry at her, and it was her fault. And that is how the spirit worked: always her fault. The spirit was a list of her mistakes.
 
-The last thing Vasilisa wanted to do right now was cold-call a god, but there was nothing else left to do but what she came for.
+The last thing Vasilisa wanted to do right now was cold-call a god, but there was nothing else left to do but what she came for. She shut her eyes tight in a grimace, and began to beat her drum. Her words were barely more than a whisper. The spirit, momentarily stymied by the drum's sound, listened.
 
 <p style="font-variant: small-caps">"Moon-Mother, please, i-it's me, Vasilisa. I'm a friend of Alexey's. I came here to help his friend Artemis, but I screwed up real, real bad. I totally fucked it up, I'm so sorry. I released this disease spirit, and, I think it's trying to give me a heart attack, or something... can you please help me? I totally don't deserve it, but like, I really wanted to help, I was just really bad at it. I dunno, could you maybe like, help me bind it again? I'm sorry, it's a lot to ask and I don't have any reindeer to sacrifice to you, but I promise I'll... uh... I'll ask Alexey for help with the sacrifice part, okay? I just need to live through this. Sorry again."</p>
 
