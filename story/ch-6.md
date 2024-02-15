@@ -208,7 +208,107 @@ At this point, she didn't know how to return. Was she dreaming? She tried to wak
 
 "ARTEMIS!"
 
-The yell tore chasms through her reality and brought jagged beams of cruel light crashing down on her face.
+The yell tore chasms through her reality and brought jagged beams of cruel light crashing down on her face. It was around four in the afternoon, the sun nearly having set on her. The red of the sunset blended into the red of the blood being pumped to her retinas.
+
+"V... Vasilisa?" she whispered.
+
+Vasilisa was running towards her, holding a drum. Artemis idly noted that its parchment yellow color with red-brown accents matched Vasilisa's parka quite well.
+
+"Artemis! Hi!" Before Artemis could protest, Vasilisa threw her hands around her, in her third hug of the day.
+
+"Infosec," mumbled Artemis.
+
+"Huh?"
+
+"Yelling my name out on the main street. Bad. Who's listening?"
+
+"Chill, there's like, no one here. Let's go home, okay? I'll help carry the stuff. ...holy crap, is that a _rice cooker?_"
+
+"It was on sale." Still softly, waking up from a dream.
+
+"I... I don't think Shchavel House has electricity, Artemis."
+
+"I know... I'm sorry." Artemis buried her face in her hands and didn't get up.
+
+"Come on, Artemis. Can you please get up for me? Do I have to stand you up?"
+
+"No... no, Vasilisa, I don't want to move, I can't move, I'm so tired of being seen. I don't want to be here. Please, I just need some time to myself."
+
+"That spirit," said Vasilisa. "It's eating you alive. Where's the idol?"
+
+Artemis gingerly reached into her coat and retrieved the stone hedgehog pendant.
+
+Vasilisa examined it. "Look, uh, spirit. You have about five seconds to let go of my friend, before I fling your idol out into the forest. Sofia said I can't turn you off, but I can get rid of you instead, so, how would you like that?"
+
+The idol didn't react. "Um. Vasilisa. Don't taunt the disease spirit, please. It already feels really bad. I don't want it to feel worse," said Artemis shakily.
+
+"One..." Vasilisa lifted the pendant's string off of Artemis's neck and pulled it over her head.
+
+"Two..." ("Vasilisa, please. I can feel it getting worse.")
+
+"Three..." ("Please?")
+
+"Four..." Vasilisa got in position to throw the idol into the forest. Artemis was terrified, and wished she'd told Vasilisa that Ryzhaya idols weren't expendable, instead of just pleading for herself.
+
+"Five!" Vasilisa lobbed the idol in the direction of the roadside forest, where it hit a rusted pole and shattered.
+
+"...okay," said Artemis. "Okay, thanks, Vasilisa, I do feel—"
+
+<div>A screech akin to a braking train filled the air, heard for kilometers.</div>
+
+<br />
+
+---
+
+<br />
+
+"No, what? Smoking them is, like, the dumbest possible thing you can do," said Alexey. "There's literally no benefit to it.
+
+"I swear, that's what they did! They smoked the mushroom!" insisted Sofia through fits of laughter.
+
+Tosha had been the one to instigate the discussion, having attempted to explain the nuances of mushroom foraging to Sofia. This had eventually led to a discussion on the effects of psilocybin, and finally a strange story about an evening Sofia had spent with her more adventurous pair of cousins.
+
+"Did it work?" asked Tosha, curious.
+
+"Of course not," grinned Sofia. "All they did was give themselves coughing fits for the rest of the night."
+
+The noise of metal tearing against metal sounded in the distance.
+
+"...was that a fox?" asked Alexey.
+
+"No," said Tosha. "I think it was a train, further away."
+
+"...a train _crash?_ Maybe?"
+
+The Aas River Basin was served by a light rail system known as Aastran, which made certain train sounds a regular occurrence in Keleykh. This noise, however, didn't quite fit among them.
+
+"Could be a spirit screaming? Those can sound like metal," suggested Sofia.
+
+"...they do that?" asked Alexey.
+
+"Sure. If someone made them really, really angry. Like breaking a contract with them."
+
+"I see. Well, I dunno, in the absence of more evidence, I don't really want to speculate."
+
+Tosha, meanwhile, started to form a worrying picture. "Uh. Guys. Vasilisa and Artemis are out there. Could it be one of theirs? One of their spirits?"
+
+This immediately inspired Alexey, ever the pathological pessimist, to begin contemplating ever more horrible fates for his friends. He resisted. "It could," he said. "But, I don't know how likely it is. I dunno, I'm predisposed to worry about my friends a lot, so, maybe I'm overrating its likelihood? But it's the only thing that really makes sense, and that's really concerning. I dunno, I dunno. I shouldn't be allowed an opinion here. Sofia, thoughts? Are they in danger?"
+
+"Well, I could just ask," said Sofia. "But if they are, what would we do about it?"
+
+"...go save them? Obviously?"
+
+"Okay, look, here's an analogy. Your friend is being chased by a bear. The bear is angry at your friend and can't be scared away. How do you help your friend? Can you help your friend run faster?"
+
+"Do Artemis and Vasilisa _know_ they should run away?"
+
+<div>"Well," grimaced Sofia, "If they didn't know it yet, they're going to find it out very, very quickly."</div>
+
+<br />
+
+---
+
+<br />
 
 <br />
 
