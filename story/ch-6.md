@@ -160,7 +160,7 @@ Alexey and Vasilisa sat down in front of the fire while they waited.
 
 "We'll have to forage," said Tosha seriously.
 
-"Oh, yeah, can I hug you?"
+"Oh, yeah, unrelated, can I hug you?"
 
 "Not unless it's an emergency." Tosha didn't have anything against physical contact in principle, but still didn't enjoy the feeling of it.
 
