@@ -240,7 +240,7 @@ Artemis gingerly reached into her coat and retrieved the stone hedgehog pendant.
 
 Vasilisa examined it. "Look, uh, spirit. You have about five seconds to let go of my friend, before I fling your idol out into the forest. Sofia said I can't turn you off, but I can get rid of you instead, so, how would you like that?"
 
-The idol didn't react. "Um. Vasilisa. Don't taunt the disease spirit, please. It already feels really bad. I don't want it to feel worse," said Artemis shakily.
+The idol didn't react. "Um. Vasilisa," said Artemis shakily. "Don't taunt the disease spirit, please. It already feels really bad. I don't want it to feel worse."
 
 "One..." Vasilisa lifted the pendant's string off of Artemis's neck and pulled it over her head.
 
