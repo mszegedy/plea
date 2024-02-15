@@ -138,7 +138,7 @@ Sofia nodded politely and held up a finger. She turned to look at Alexey and Vas
 
 "Yeah," said Vasilisa. "What's wrong with that?"
 
-"Well, just... it's my drum now! I was gonna use it!"
+"Well, just... it's my _drum!_ I was going to use it!"
 
 While Vasilisa's first instinct was to dispute Sofia's claim to the drum, she realized it was a reasonable point. "Okay, I'm sorry, Sofia. May I borrow your drum? To go rescue Artemis and shamanize to the Moon-Mother?"
 
