@@ -310,7 +310,7 @@ This immediately inspired Alexey, ever the pathological pessimist, to begin cont
 
 <br />
 
-Vasilisa had never noticed until now, but the roadside slush seemed to have an oily sheen to it. And it only just now became clear that the red of the sunset wasn't caused by the sun; it was an array of distant oil wells, lit by---
+Vasilisa had never noticed until now, but the roadside slush seemed to have a rainbow sheen to it. And it only just now became clear that the red of the sunset wasn't caused by the sun; it was an array of distant oil wells, lit by---
 
 A wave of anxiety passed over her. Her heart crumpled up and she fell to a knee in pain, clutching her chest. Every breath hurt. She looked up:
 
