@@ -324,9 +324,19 @@ The last thing Vasilisa wanted to do right now was cold-call a god, but there wa
 
 It was then that she noticed she was holding a white styrofoam cup full of hot tea. Vasilisa hadn't had the occasion to handle styrofoam much in her life, and nearly dropped it out of surprise. Had she absentmindedly made herself tea at Shchavel House and brought it here? Such feats were improbable, but not beyond her. Or was it a gift from...?
 
-She sipped the tea a little and immediately felt better. It was green tea, cut with toasted rice. Not her favorite, but it reminded her of better days.
+She sipped the tea a little and immediately felt better. It was green tea, cut with toasted rice. Not her favorite, but it reminded her of better days. Another wave of anxiety washed over her as the spirit renewed its attack, but all it made her do is sip the tea faster.
 
-"Hey, Artemis, check this out. I think I brought tea by accident." She gave the remainder to Artemis, who, sensing it 
+"Hey, Artemis, check this out," said Vasilia. "I think I brought tea by accident." She gave the remainder to Artemis, who, practiced in ascertaining the temperature of tea through styrofoam, immediately recognized that it was safe to down it in one gulp, and did so.
+
+"Thanks," she said. "That helped a lot. Uh, what about the anxiety hedgehog?"
+
+Vasilisa shrugged. "I could try apologizing to it? My knife's not gonna do anything."
+
+Artemis, who had no less than three knives currently on her person, agreed that a knife was not going to be useful here. If it were, then she'd have already used one. "I can try the other idol?"
+
+Vasilisa turned to look at her. "_What_ other idol?"
+
+"A fever idol," said Artemis. "It's a lot more powerful. It's supposed to, uh, mess with reality. I think."
 
 <br />
 
