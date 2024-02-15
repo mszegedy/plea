@@ -90,11 +90,11 @@ Alexey frowned. "Yeah. When we take our meds, we're treating a disease. We could
 
 "Okay, okay. Which knife?"
 
-"Right, uhh, that one," said Vasilisa, pointing to a full-tang steel knife. "It's not like big or anything but it looks the sturdiest."
+"Right, uhh, that one," said Vasilisa, pointing to what seemed a boning knife. "It's not like big or anything but it looks the sturdiest."
 
 "The handle's wooden," replied Alexey obviously.
 
-"I'll wrap it in leather. And it's got a tang. I'm taking it."
+"I'll wrap it in leather. And it's full-tang. I'm taking it."
 
 "Fine. Want anything else?"
 
