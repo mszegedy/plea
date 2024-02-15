@@ -312,7 +312,7 @@ This immediately inspired Alexey, ever the pathological pessimist, to begin cont
 
 Vasilisa had never noticed until now, but the roadside slush seemed to have an oily sheen to it. And it only just now became clear that the red of the sunset wasn't caused by the sun; it was an array of distant oil wells, lit by---
 
-A wave of anxiety passed over her. Her heart crumpled up and she feel to a knee in pain, clutching her chest. Every breath hurt. She looked up:
+A wave of anxiety passed over her. Her heart crumpled up and she fell to a knee in pain, clutching her chest. Every breath hurt. She looked up:
 
 A hedgehog. No larger than any ordinary hedgehog. But it was made of splinters of glass stuck in her eyes, and blinking only made the pain worse. She could see the hedgehog even when she closed her eyes, as though the intention of her self-isolation, all along, were that she could be alone with it. The spirit approached the girls, and began vibrating, building momentum. At last, it let out the tension it had built up in another shriek, greater than the last. It rent Vasilisa's mind in two.
 
