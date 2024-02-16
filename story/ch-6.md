@@ -354,7 +354,7 @@ As Vasilisa spoke, the hedgehog started approaching once more. It climbed onto h
 
 She had a flash of inspiration, and placed the cup on the ground. "Oh, right, you need an idol, right? This teacup will keep you safe until we get home. Do you want… oh, okay." The spirit had already let go of her leg and crawled over to the teacup. It gingerly tipped it over with a paw, and spilled inside. The styrofoam became perforated with glass as the spirit shifted around inside, and eventually its snout emerged from the top. Vasilisa felt a different sort of anxiety stab her heart: an anxiety to get home.
 
-"…nice," said Artemis, who felt that she couldn't just leave the incident without comment. Vasilisa picked up the cup by its rim, trying not to hurt her hand. The entity inside it started looking less like a hedgehog, and more like an ordinary pile of broken glass. She blinked. The glass was, indeed, no longer stuck in her eyes.
+"…nice," said Artemis, who felt that she couldn't just leave the incident without comment, but had nothing to actually say. Vasilisa picked up the cup by its rim, trying not to hurt her hand. The entity inside it started looking less like a hedgehog, and more like an ordinary pile of broken glass. She blinked. The glass was, indeed, no longer stuck in her eyes.
 
 <div>The girls picked up the groceries and walked home.</div>
 
