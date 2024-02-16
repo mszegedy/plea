@@ -350,9 +350,15 @@ The hedgehog stood at attention again, like it had to the sound of the drum.
 
 "Look, I'm really sorry I broke your idol, alright? I was just trying to protect my friend. I… I'm not good with this spirit stuff, I'm sorry. But, look." She brandished the cup. "I've got tea. At home, I mean. You can come back home with us, and I'll get you tea. And, and look, you helped my friend get all this food, right? You can have some of that, too. You can come home with us, and you'll be… safe…"
 
-As Vasilisa spoke, the hedgehog started approaching once more. It climbed onto her foot, and braced its front paws against her leg, like a dog asking for treats. Seeing the spirit up close made Vasilisa realize how little it really resembled a hedgehog. It reminded her more of a testate amoeba: an amorphous blob of sharp debris, flattened out somewhat, with a few abstract protrusions around its edge used to poke and prod at the world. Its "snout" was not much more than a modest knob on its mass that the glass shards happened to be pointing away from. Nevertheless, Vasilisa felt like she should be hugging it like a plush doll and placing it next to her pillow in her bed. (Her bed? _Oh, right,_ she thought. _I don't have a bed yet._)
+As Vasilisa spoke, the hedgehog started approaching once more. It climbed onto her foot, and braced its front paws against her leg, like a dog asking for treats. Seeing the spirit up close made Vasilisa realize how little it really resembled a hedgehog. It reminded her more of a testate amoeba: an amorphous blob of sharp debris, flattened out somewhat, with a few abstract protrusions around its edge used to poke and prod at the world. Its "snout" was not much more than a modest knob on its mass that the glass shards happened to be pointing away from. Nevertheless, Vasilisa felt like she should be hugging it like a plush doll and placing it next to her pillow in her bed. (Her bed? _Oh, right,_ she thought. _I don't have a bed anymore. Or, yet._)
 
 "Um… are we good?" she asked. The spirit remained attached to her leg.
+
+She had a flash of inspiration, and placed the cup on the ground. "Oh, right, you need an idol, right? This teacup will keep you safe until we get home. Do you want… oh, okay." The spirit had already let go of her leg and crawled over to the teacup. It gingerly tipped it over with a paw, and spilled inside. The styrofoam became perforated with glass as the spirit shifted around inside, and eventually its snout emerged from the top. Vasilisa felt a different sort of anxiety stab her heart: an anxiety to get home.
+
+"…nice," said Artemis, who felt that she couldn't just leave the incident without comment. Vasilisa picked up the cup by its rim, trying not to hurt her hand. The entity inside it started looking less like a hedgehog, and more like an ordinary pile of broken glass. She blinked. The glass was, indeed, no longer stuck in her eyes.
+
+<div>The girls picked up the groceries and walked home.</div>
 
 <br />
 
