@@ -362,6 +362,26 @@ She had a flash of inspiration, and placed the cup on the ground. "Oh, right, yo
 
 <br />
 
+---
+
+<br />
+
+"Vasilisa. Tell me honestly. Are you mentally disabled?" asked Sofia sharply.
+
+"I…" came the reply.
+
+"Do you have problems with reading comprehension, that you have not mentioned to me? Are you perhaps afflicted with narcissism? Because I would rather believe _any_ of these things than that you, being of sound mind and having just read a text on their proper care, chose to _destroy_ one of my idols and unleash its spirit on the town."
+
+"I didn't know!" protested Vasilisa. "I'm sorry, okay? I've apologized like ten times already. I'm sorry, I know, it was stupid, I won't do it again."
+
+"Sofia," said Alexey coldly, stepping forward. "You will _not_ diagnose my friends with mental disorders or disabilities in order to insult them. You wanna be angry at Vasilisa? Fine. I'm angry at her, too. She could have gotten herself and Artemis killed. But somehow, _somehow_ I can express my disappointment in her _without_ bringing mental issues into it. I suggest you be more understanding _immediately_ or I will kick you out of the goddamn house. Yes, _your_ goddamn house."
+
+"But it's genuinely relevant to—" began Sofia.
+
+"Shut the fuck up," said Alexey. "Don't pretend you're trying to do a, what do you call it, a structured debriefing here. I _know_ where you got your style of being angry at someone from. From our mother, yeah? The fact that it took me a lifetime to unlearn it is the _only_ reason you haven't already lost the right to talk to me or my friends. Either be polite or fucking leave."
+
+<br />
+
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
