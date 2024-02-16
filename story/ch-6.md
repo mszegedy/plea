@@ -2,8 +2,6 @@
 title: Chapter 6
 ---
 
-**This chapter is unfinished.**
-
 [**Previously**](ch-5.html)
 
 > A shaman needs a drum, so that the gods can hear them. And a daughter of mine needs a knife too, to feed the spirits [with blood]. It [the knife] can also contain a spirit.
@@ -370,7 +368,7 @@ She had a flash of inspiration, and placed the cup on the ground. "Oh, right, yo
 
 "I…" came the reply.
 
-"Do you have problems with reading comprehension, that you have not mentioned to me? Are you perhaps afflicted with narcissism? Because I would rather believe _any_ of these things than that you, being of sound mind and having just read a text on their proper care, chose to _destroy_ one of my idols and unleash its spirit on the town."
+"Do you have problems with reading comprehension, that you should have mentioned to me before I recommended books to you? Are you perhaps afflicted with narcissism? Because I would rather believe _any_ of these things than that you, being of sound mind and having just read a text on their proper care, chose to _destroy_ one of my idols and unleash its spirit on the town."
 
 "I didn't know!" protested Vasilisa. "I'm sorry, okay? I've apologized like ten times already. I'm sorry, I know, it was stupid, I won't do it again."
 
@@ -379,6 +377,38 @@ She had a flash of inspiration, and placed the cup on the ground. "Oh, right, yo
 "But it's genuinely relevant to—" began Sofia.
 
 "Shut the fuck up," said Alexey. "Don't pretend you're trying to do a, what do you call it, a structured debriefing here. I _know_ where you got your style of being angry at someone from. From our mother, yeah? The fact that it took me a lifetime to unlearn it is the _only_ reason you haven't already lost the right to talk to me or my friends. Either be polite or fucking leave."
+
+Sofia fumed silently for a few seconds. Nobody dared to speak.
+
+"I… uh…" said Vasilisa hesitantly. "I was really worried about Artemis. She didn't want to move or leave. That doesn't make it okay, but like, I thought I could just throw the idol away and leave it, you know? I didn't think it contained anything… that powerful. Or that it would come after me. I'm sorry. And… what kind of 'illness' is social anxiety, anyway? Like, obviously in this case it was bad, but like, it's kinda arbitrary how bad it has to be before you call it a 'disorder', you know? And it's not like it kills you. So I thought… maybe I wasn't dealing with a serious disease spirit, or anything, and yeah I know how bad that sounds, but like, I have social anxiety all the time too, you know? And it's just, like, a part of me, and I don't really think of it as an illness or anything, so, um… yeah.
+
+"I'm really, really sorry. I'll take all the idols seriously from now on. And, destroying it was an accident. Sofia, Alexey, I'm, sorry I disrespected and destroyed one of your family's idols. I, uh… I hope the new one makes up for it."
+
+Sofia squinted at the styrofoam cup full of glass that Vasilisa had given her upon arrival. She'd identified it as originating in Shchavel House's closet. She remembered a time when her father would come back certain days from hunting trips, getting snow and slush all over the kitchen as he walked, and pour himself the lowest effort cup of tea that he could manage. Ever since he'd left six years ago, nobody had been using the cups. Her mother always swore she could taste the styrofoam and that she'd die from cancer if she used it.
+
+"This is an improperly bound spirit," said Sofia. "Not exactly the same one as the idol contained. You treated your _own_ anxiety and bound it." She wiggled the cup around, shards of glass clinking against one another. "You said you promised you'll feed it tea?"
+
+"And, uh," Vasilisa faltered, "Keep it safe and warm and stuff, yeah."
+
+"I'll have to… renegotiate that," said Sofia. "We can't feed all our idols the normal way. That would be a logistical nightmare. I'll make another deal with the mosquitos, I guess."
+
+"Don't," said Vasilisa suddenly. "I'll take care of it. It's my mistake. I'll deal with it."
+
+"You're sure?"
+
+"Yeah. I'll keep it on my bedside table."
+
+The five kids stood around, uncomfortably.
+
+Tosha spoke. "I can make mapo tofu now." There were nods and murmurs of affirmation.
+
+Alexey gave Sofia a hard look. "Sofia. We need to talk. Come up to the study, will you?"
+
+And though it was normally Sofia who was practiced at imitating their mother, the chills she got from his words felt nothing but authentic.
+
+<br />
+
+[**Next**](ch-7.html)
 
 <br />
 
