@@ -364,7 +364,7 @@ She had a flash of inspiration, and placed the cup on the ground. "Oh, right, yo
 
 <br />
 
-"Vasilisa. Tell me honestly. Are you mentally disabled?" asked Sofia sharply.
+"Vasilisa. Tell me honestly. Are you mentally disabled?" asked Sofia.
 
 "I…" came the reply.
 
