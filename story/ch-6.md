@@ -12,7 +12,7 @@ title: Chapter 6
 
 "Sofia, do you have any spare knives? Preferably ones that are also idols," said Vasilisa.
 
-"Well..." began Sofia.
+"Well…" began Sofia.
 
 "You're going after Artemis?" asked Alexey, accusingly.
 
@@ -26,7 +26,7 @@ title: Chapter 6
 
 Vasilisa, already halfway to the stairs with Alexey, swivelled to face her. "We already _had_ this conversation, Sofia, and it ended with Artemis leaving," Vasilisa said pointedly. "Are you going to make it zero-for-two?"
 
-"But..." Sofia couldn't choose a complaint. "...what do you even plan to _do?_"
+"But…" Sofia couldn't choose a complaint. "…what do you even plan to _do?_"
 
 "Shamanize," replied Vasilisa simply, in a tone that carried an implicit, "Duh."
 
@@ -68,7 +68,7 @@ Alexey rolled his eyes. "What _kind_ of metal?"
 
 "I'm just asking because none of the steel ones are idols."
 
-"Oh," said Vasilisa, unsheathing various other knives in turn to find each in an advanced state of decay. "...can we turn one into one?"
+"Oh," said Vasilisa, unsheathing various other knives in turn to find each in an advanced state of decay. "…can we turn one into one?"
 
 "What, like, bind a spirit ourselves? To a steel knife?"
 
@@ -76,9 +76,9 @@ Alexey rolled his eyes. "What _kind_ of metal?"
 
 Alexey grimaced at the memory of the most recent spirit-binding he was party to. It was a funeral he attended at the age of six, officiated by his mother. She had made a contract with the deceased that upon her death, one of her bones would become an idol for the disease spirit that was killing her. Like most Ryzhaya rites, this was considered very unnatural and unclean within the local religious canon, and the controversy it stirred up had deepened the stigma of the Ryzhaya name to its present state, leading directly to the predicament Alexey and his friends faced today.
 
-"It's... kind of a drag," he sighed. "I don't think we could pull one off right now. You need a sick person, and a way to treat their sickness."
+"It's… kind of a drag," he sighed. "I don't think we could pull one off right now. You need a sick person, and a way to treat their sickness."
 
-"So, like, when we take our meds..."
+"So, like, when we take our meds…"
 
 Alexey frowned. "Yeah. When we take our meds, we're treating a disease. We could siphon off some of our depression and whatever into idols. If we had meds. Which we don't."
 
@@ -100,11 +100,11 @@ Alexey frowned. "Yeah. When we take our meds, we're treating a disease. We could
 
 "A drum."
 
-"...of human skin?"
+"…of human skin?"
 
 "What?"
 
-"Never mind, it's a... Sump in-joke. Just take the one in the chest. I'd need to go looking for other ones."
+"Never mind, it's a… Sump in-joke. Just take the one in the chest. I'd need to go looking for other ones."
 
 The oval of stretched reindeer parchment in the chest had all the standard branching designs on it that befit a Samoyed drum, as well as some less traditional icons of what looked like mosquitos. These were detailed in what Vasilisa could only assume was blood. She wondered how the designs didn't fade or rub off. Magic? Or just high-effort dyeing with a good fixative?
 
@@ -112,15 +112,15 @@ The oval of stretched reindeer parchment in the chest had all the standard branc
 
 "Hell if I know. I never paid attention to what drum my mother used when shamanizing. Big sand-colored oval either way."
 
-"Okay. I'll take it. And lastly... I'll need a god."
+"Okay. I'll take it. And lastly… I'll need a god."
 
 Alexey raised an eyebrow. "A god?"
 
 "Someone to shamanize to. You know. Someone who likes me? Please tell me someone likes me."
 
-"I..." What was Alexey supposed to say here? "I think the Moon-Mother likes _me._ I mean, she never granted any of my wishes, I think, but they were dumb wishes anyway. She was probably just looking out for me. I've prayed to her a lot, and made sacrifices to her. Maybe..." He bit his lip meditatively. "Just shamanize to her, alright? Tell her you're a friend of mine and you're trying to help me."
+"I…" What was Alexey supposed to say here? "I think the Moon-Mother likes _me._ I mean, she never granted any of my wishes, I think, but they were dumb wishes anyway. She was probably just looking out for me. I've prayed to her a lot, and made sacrifices to her. Maybe…" He bit his lip meditatively. "Just shamanize to her, alright? Tell her you're a friend of mine and you're trying to help me."
 
-Vasilisa sensed that Alexey was making an effort to be more vulnerable than usual here. "Alright, thanks. I totally will. I totally appreciate how... thank you. Really. Hug?"
+Vasilisa sensed that Alexey was making an effort to be more vulnerable than usual here. "Alright, thanks. I totally will. I totally appreciate how… thank you. Really. Hug?"
 
 Alexey nodded, and the two embraced tightly, heads over each other's shoulders. Vasilisa wasn't seriously expecting to die on her excursion, but she thought that just in case she did, she definitely wanted to hug both Alexey and Tosha first. And thank Sofia for all the help. _One bucket list item down, two to go,_ she thought. _Guess if you're about to die your bucket list's gotta be modest._
 
@@ -132,23 +132,23 @@ Alexey nodded, and the two embraced tightly, heads over each other's shoulders. 
 
 <br />
 
-"...not jellyfish, but it tastes the same and feels the same," Tosha was explaining to Sofia when the pair returned. "Or well it doesn't have much of a taste. But either way."
+"…not jellyfish, but it tastes the same and feels the same," Tosha was explaining to Sofia when the pair returned. "Or well it doesn't have much of a taste. But either way."
 
 Sofia nodded politely and held up a finger. She turned to look at Alexey and Vasilisa as they arrived. "Hi. Did you find what you were looking for? Wait, is that _Mom's_ drum?"
 
 "Yeah," said Vasilisa. "What's wrong with that?"
 
-"Well, just... it's my _drum!_ I was going to use it!"
+"Well, just… it's my _drum!_ I was going to use it!"
 
 While Vasilisa's first instinct was to dispute Sofia's claim to the drum, she realized it was a reasonable point. "Okay, I'm sorry, Sofia. May I borrow your drum? To go rescue Artemis and shamanize to the Moon-Mother?"
 
-"Shamanize to the... how do you even know Artemis needs rescuing? You just _assume_ she's going to fail a simple grocery run? Is that what you think of your friend?"
+"Shamanize to the… how do you even know Artemis needs rescuing? You just _assume_ she's going to fail a simple grocery run? Is that what you think of your friend?"
 
 "Hey," said Alexey, who did not like where this was going.
 
 Vasilisa took a deep breath, and let it out. "Okay. Okay, fair. Can you ask the mosquitos how she's doing?"
 
-"...alright," agreed Sofia. "Give me a moment." She closed her eyes.
+"…alright," agreed Sofia. "Give me a moment." She closed her eyes.
 
 Alexey and Vasilisa sat down in front of the fire while they waited.
 
@@ -210,7 +210,7 @@ At this point, she didn't know how to return. Was she dreaming? She tried to wak
 
 The yell tore chasms through her reality and brought jagged beams of cruel light crashing down on her face. It was around four in the afternoon, the sun nearly having set on her. The red of the sunset blended into the red of the blood being pumped to her retinas.
 
-"V... Vasilisa?" she whispered.
+"V… Vasilisa?" she whispered.
 
 Vasilisa was running towards her, holding a drum. Artemis idly noted that its parchment yellow color with red-brown accents matched Vasilisa's parka quite well.
 
@@ -222,17 +222,17 @@ Vasilisa was running towards her, holding a drum. Artemis idly noted that its pa
 
 "Yelling my name out on the main street. Bad. Who's listening?"
 
-"Chill, there's like, no one here. Let's go home, okay? I'll help carry the stuff. ...holy crap, is that a _rice cooker?_"
+"Chill, there's like, no one here. Let's go home, okay? I'll help carry the stuff. …holy crap, is that a _rice cooker?_"
 
 "It was on sale." Still softly, waking up from a dream.
 
-"I... I don't think Shchavel House has electricity, Artemis."
+"I… I don't think Shchavel House has electricity, Artemis."
 
-"I know... I'm sorry." Artemis buried her face in her hands and didn't get up.
+"I know… I'm sorry." Artemis buried her face in her hands and didn't get up.
 
 "Come on, Artemis. Can you please get up for me? Do I have to stand you up?"
 
-"No... no, Vasilisa, I don't want to move, I can't move, I'm so tired of being seen. I don't want to be here. Please, I just need some time to myself."
+"No… no, Vasilisa, I don't want to move, I can't move, I'm so tired of being seen. I don't want to be here. Please, I just need some time to myself."
 
 "That spirit," said Vasilisa. "It's eating you alive. Where's the idol?"
 
@@ -242,17 +242,17 @@ Vasilisa examined it. "Look, uh, spirit. You have about five seconds to let go o
 
 The idol didn't react. "Um. Vasilisa," said Artemis shakily. "Don't taunt the disease spirit, please. It already feels really bad. I don't want it to feel worse."
 
-"One..." Vasilisa lifted the pendant's string off of Artemis's neck and pulled it over her head.
+"One…" Vasilisa lifted the pendant's string off of Artemis's neck and pulled it over her head.
 
-"Two..." ("Vasilisa, please. I can feel it getting worse.")
+"Two…" ("Vasilisa, please. I can feel it getting worse.")
 
-"Three..." ("Please?")
+"Three…" ("Please?")
 
-"Four..." Vasilisa got in position to throw the idol into the forest. Artemis was terrified, and wished she'd told Vasilisa that Ryzhaya idols weren't expendable, instead of just pleading for herself.
+"Four…" Vasilisa got in position to throw the idol into the forest. Artemis was terrified, and wished she'd told Vasilisa that Ryzhaya idols weren't expendable, instead of just pleading for herself.
 
 "Five!" Vasilisa lobbed the idol in the direction of the roadside forest, where it hit a rusted pole and shattered.
 
-"...okay," said Artemis. "Okay, thanks, Vasilisa, I do feel—"
+"…okay," said Artemis. "Okay, thanks, Vasilisa, I do feel—"
 
 <div>A screech akin to a braking train filled the air, heard for kilometers.</div>
 
@@ -274,17 +274,17 @@ Tosha had been the one to instigate the discussion, having attempted to explain 
 
 The noise of metal tearing against metal sounded in the distance.
 
-"...was that a fox?" asked Alexey.
+"…was that a fox?" asked Alexey.
 
 "No," said Tosha. "I think it was a train, further away."
 
-"...a train _crash?_ Maybe?"
+"…a train _crash?_ Maybe?"
 
 The Aas River Basin was served by a light rail system known as Aastran, which made certain train sounds a regular occurrence in Keleykh. This noise, however, didn't quite fit among them.
 
 "Could be a spirit screaming? Those can sound like metal," suggested Sofia.
 
-"...they do that?" asked Alexey.
+"…they do that?" asked Alexey.
 
 "Sure. If someone made them really, really angry. Like breaking a contract with them."
 
@@ -296,7 +296,7 @@ This immediately inspired Alexey, ever the pathological pessimist, to begin cont
 
 "Well, I could just ask," said Sofia. "But if they are, what would we do about it?"
 
-"...go save them? Obviously?"
+"…go save them? Obviously?"
 
 "Okay, look, here's an analogy. Your friend is being chased by a bear. The bear is angry at your friend and can't be scared away. How do you help your friend? Can you help them run faster? No, you can't, unless you can pick them up and carry them, and you definitely can't here."
 
@@ -318,11 +318,11 @@ A hedgehog. No larger than any ordinary hedgehog. But it was made of splinters o
 
 She understood that this was her fault. The spirit was angry at her, and it was her fault. And that is how the spirit worked: always her fault. The spirit was a list of her mistakes.
 
-The last thing Vasilisa wanted to do right now was cold-call a god, but there was nothing else left to do but what she came for. She shut her eyes tight in a grimace, and began to beat her drum. Her words were barely more than a whisper. The spirit, momentarily stymied by the drum's sound, listened.
+The last thing Vasilisa wanted to do right now was cold-call a god, but there was nothing else left to do but what she came for. She shut her eyes tight in a grimace, regretting how much it hurt, and began to beat her drum. Her words were barely more than a whisper. The spirit, momentarily stymied by the drum's sound, listened.
 
-<p style="font-variant: small-caps">"Moon-Mother, please, i-it's me, Vasilisa. I'm a friend of Alexey's. I came here to help his friend Artemis, but I screwed up real, real bad. I totally fucked it up, I'm so sorry. I released this disease spirit, and, I think it's trying to give me a heart attack, or something... can you please help me? I totally don't deserve it, but like, I really wanted to help, I was just really bad at it. I dunno, could you maybe like, help me bind it again? I'm sorry, it's a lot to ask and I don't have any reindeer to sacrifice to you, but I promise I'll... uh... I'll ask Alexey for help with the sacrifice part, okay? I just need to live through this. Sorry again."</p>
+<p style="font-variant: small-caps">"Moon-Mother, please, i-it's me, Vasilisa. I'm a friend of Alexey's. I came here to help his friend Artemis, but I screwed up real, real bad. I totally fucked it up, I'm so sorry. I released this disease spirit, and, I think it's trying to give me a heart attack, or something… can you please help me? I totally don't deserve it, but like, I really wanted to help, I was just really bad at it. I dunno, could you maybe like, help me bind it again? I'm sorry, it's a lot to ask and I don't have any reindeer to sacrifice to you, but I promise I'll… uh… I'll ask Alexey for help with the sacrifice part, okay? I just need to live through this. Sorry again."</p>
 
-It was then that she noticed she was holding a white styrofoam cup full of hot tea. Vasilisa hadn't had the occasion to handle styrofoam much in her life, and nearly dropped it out of surprise. Had she absentmindedly made herself tea at Shchavel House and brought it here? Such feats were improbable, but not beyond her. Or was it a gift from...?
+It was then that she noticed she was holding a white styrofoam cup full of hot tea. Vasilisa hadn't had the occasion to handle styrofoam much in her life, and nearly dropped it out of surprise. Had she absentmindedly made herself tea at Shchavel House and brought it here? Such feats were improbable, but not beyond her. Or was it a gift from…?
 
 She sipped the tea a little and immediately felt better. It was green tea, cut with toasted rice. Not her favorite, but it reminded her of better days. Another wave of anxiety washed over her as the spirit renewed its attack, but all it made her do is sip the tea faster.
 
@@ -338,13 +338,29 @@ Vasilisa turned to look at her. "_What_ other idol?"
 
 "A fever idol," said Artemis. "It's a lot more powerful. It's supposed to, uh, mess with reality. I think."
 
+"Uhhh. Is involving another spirit really the right move here?"
+
+A new wave of anxiety hit them both. Artemis's hands shook. She really, really wanted to just be somewhere else, to leave someone or something else to deal with this situation and to just run away…
+
+Vasilisa chose a different tack. She snatched the empty styrofoam cup out of Artemis's hand.
+
+"Hey! Spirit!" she yelled.
+
+The hedgehog stood at attention again, like it had to the sound of the drum.
+
+"Look, I'm really sorry I broke your idol, alright? I was just trying to protect my friend. I… I'm not good with this spirit stuff, I'm sorry. But, look." She brandished the cup. "I've got tea. At home, I mean. You can come back home with us, and I'll get you tea. And, and look, you helped my friend get all this food, right? You can have some of that, too. You can come home with us, and you'll be… safe…"
+
+As Vasilisa spoke, the hedgehog started approaching once more. It climbed onto her foot, and braced its front paws against her leg, like a dog asking for treats. Seeing the spirit up close made Vasilisa realize how little it really resembled a hedgehog. It reminded her more of a testate amoeba: an amorphous blob of sharp debris, flattened out somewhat, with a few abstract protrusions around its edge used to poke and prod at the world. Its "snout" was not much more than a modest knob on its mass that the glass shards happened to be pointing away from. Nevertheless, Vasilisa felt like she should be hugging it like a plush doll and placing it next to her pillow in her bed. (Her bed? _Oh, right,_ she thought. _I don't have a bed yet._)
+
+"Um… are we good?" she asked. The spirit remained attached to her leg.
+
 <br />
 
 <div id="disqus_thread"></div>
 <script>
     var disqus_config = function () {
     this.page.url = 'https://mszegedy.github.io/plea/';
-    this.page.identifier = 'ch-5';
+    this.page.identifier = 'ch-6';
     };
     (function() {
     var d = document, s = d.createElement('script');
