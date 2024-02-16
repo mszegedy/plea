@@ -384,7 +384,7 @@ Sofia fumed silently for a few seconds. Nobody dared to speak.
 
 "I'm really, really sorry. I'll take all the idols seriously from now on. And, destroying it was an accident. Sofia, Alexey, I'm, sorry I disrespected and destroyed one of your family's idols. I, uh… I hope the new one makes up for it."
 
-Sofia squinted at the styrofoam cup full of glass that Vasilisa had given her upon arrival. She'd identified it as originating in Shchavel House's closet. She remembered a time when her father would come back certain days from hunting trips, getting snow and slush all over the kitchen as he walked, and pour himself the lowest effort cup of tea that he could manage. Ever since he'd left six years ago, nobody had been using the cups. Her mother always swore she could taste the styrofoam and that she'd die from cancer if she used it.
+Sofia squinted at the styrofoam cup full of glass that Vasilisa had given her upon arrival. She'd identified it as originating in Shchavel House's closet. She remembered a time when her father would come back certain days from hunting trips, getting snow and slush all over the kitchen as he walked, and pour himself the lowest effort cup of tea that he could manage. Ever since he'd left six years ago, nobody had been using the cups. Her mother always swore she could taste the styrofoam and that Sofia would die from cancer if she drank from them.
 
 "This is an improperly bound spirit," said Sofia. "Not exactly the same one as the idol contained. You treated your _own_ anxiety and bound it." She wiggled the cup around, shards of glass clinking against one another. "You said you promised you'll feed it tea?"
 
