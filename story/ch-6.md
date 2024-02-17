@@ -290,7 +290,7 @@ The Aas River Basin was served by a light rail system known as Aastran, which ma
 
 Tosha, meanwhile, started to form a worrying picture. "Uh. Guys. Vasilisa and Artemis are out there. Could it be one of theirs? One of their spirits?"
 
-This immediately inspired Alexey, ever the pathological pessimist, to begin contemplating horrible fates for his friends. He resisted. "It could," he said. "But, I don't know how likely it is. I dunno, I'm predisposed to worry about my friends a lot, so, maybe I'm overrating its likelihood? But it's the only thing that really makes sense, and that's really concerning. I dunno, I dunno. I shouldn't be allowed an opinion here. Sofia, thoughts? Are they in danger?"
+This immediately inspired Alexey, ever the pathological pessimist, to begin contemplating horrible fates for his friends. He tried to resist. "It could," he said. "But, I don't know how likely it is. I dunno, I'm predisposed to worry about my friends a lot, so, maybe I'm overrating its likelihood? But it's the only thing that really makes sense, and that's really concerning. I dunno, I dunno. I shouldn't be allowed an opinion here. Sofia, thoughts? Are they in danger?"
 
 "Well, I could just ask," said Sofia. "But if they are, what would we do about it?"
 
