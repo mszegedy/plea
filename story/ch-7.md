@@ -28,7 +28,7 @@ Sophia drew out a long, slow sigh, as she very gently and slowly let her guard d
 
 "Eventually you just had all the answers," Alexey finished for her. "Even if they weren't answers you liked. May I hug you?"
 
-Sofia, face red, nodded and wiped her nose. She broke into sobs as Alexey embraced her.
+Sofia, face red, nodded and wiped her nose. She broke into sobs as Alexey slipped off the desk and embraced her.
 
 "I'm sorry," said Alexey. "I'm sorry, I went through it, too. I won those arguments, too. And I know what you wanted to say next about the issue, because you're the one who mentioned she was suicidal, and that's what I've been trying to get at this whole time: she made you _regret_ winning, didn't she?"
 
