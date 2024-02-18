@@ -30,7 +30,7 @@ Sophia drew out a long, slow sigh, as she very gently and slowly let her guard d
 
 Sofia, face red, nodded and wiped her nose. She broke into sobs as Alexey embraced her.
 
-"I'm sorry," said Alexey. "I'm sorry, I went through it, too. I won those arguments, too. And I know what you wanted to say next about the issue, because you couldn't know she was suicidal without it, and that's what I've been trying to get at this whole time: she made you _regret_ winning, didn't she?"
+"I'm sorry," said Alexey. "I'm sorry, I went through it, too. I won those arguments, too. And I know what you wanted to say next about the issue, because you're the one who mentioned she was suicidal, and that's what I've been trying to get at this whole time: she made you _regret_ winning, didn't she?"
 
 Sofia choked on a sob. "It..." she whispered, as Alexey released her from the hug, "It was so, so much worse. Once she had nothing left to lose. I... I-I didn't want her to die, so I had to keep talking to her, or-or keep her talking, and it was like this new, horrible kind of argument where I couldn't win because it all came back to how nobody loved or appreciated her and how she was worthless... I don't know, Alexey. Did I kill her? She got so _sloppy_ in the last few months. Going out without her drum. Then without even an idol. That last day... yesterday... she went out with _nothing._ She still wanted to die. I never could convince her she was loved. I tried really, really hard to love her, but"
 
