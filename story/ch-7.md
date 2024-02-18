@@ -16,7 +16,7 @@ Sofia was trying very hard to see where this was going, and failing. "Most of it
 
 These next words of Alexey's had to be the most careful of all. "No. Not... quite. I... what did you talk about, with Mom? Because..."
 
-"Stop asking questions, Alexey, and just get to the damn point! You°re not Socrates! What do you _want_ from me?"
+"Stop asking questions, Alexey, and just get to the damn point! You're not Socrates! What do you _want_ from me?"
 
 "I'm sorry, this is so difficult. It's just... a lot of what I talked about with Mom was, well, her. It was about her. Because she was..."
 
