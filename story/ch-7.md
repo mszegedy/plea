@@ -142,7 +142,7 @@ Artemis and Vasilisa's attention was now waning desperately, but they knew this 
 
 Vasilisa let out a sigh of relief. "So, that's it then, right? Now you just let the soup simmer?"
 
-"Almost," said Tosha. "I've still gotta add some spices and stuff. And the leeks. But yeah." They obtained salt, white pepper, soy sauce, Hungarian hot paste, and some leeks from the grocery bags, nearly depleting them entirely. They sprinkled the spices in, and began washing the leeks, then cutting them into rings.
+"Almost," said Tosha. "I've still gotta add some spices and stuff. And the leeks. But yeah." They obtained salt, white pepper, soy sauce, Hungarian hot paste, and some leeks from the grocery bags, nearly depleting them entirely. They sprinkled the spices in, and began washing the leeks and cutting them into rings.
 
 Artemis sat down at the kitchen table, relieved to be able to focus on something else. "Hey, so, Vasilisa, what are you gonna read next, after that Ryzhaya book? _Metaphors_ or whatever?"
 
