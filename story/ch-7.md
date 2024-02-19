@@ -36,7 +36,59 @@ Sofia, face red, nodded and wiped her nose. She broke into sobs as Alexey slippe
 
 Sofia choked on a sob. "It…" she whispered, as Alexey released her from the hug, "It was so, so much worse. Once she had nothing left to lose. I… I-I didn't want her to die, so I had to keep talking to her, or-or keep her talking, and it was like this new, horrible kind of argument where I couldn't win because it all came back to how nobody loved or appreciated her and how she was worthless… I don't know, Alexey. Did I kill her? She got so _sloppy_ in the last few months. Going out without her drum. Then without even an idol. That last day… yesterday… she went out with _nothing._ She still wanted to die. I never could convince her she was loved. I tried really, really hard to love her, but—"
 
-"Sofia, that's not your responsibility!" exclaimed Alexey, so suddenly and loudly that Sofia reflexively jumped back. Alexey felt guilty for this, as he'd been trying his best to control his tone and volume, but he couldn't help it. "I mean, God, did nobody tell you? Someone told you, right? When… okay, sorry, I'll stop asking questions and just tell you what happened to me: the first time my mother tried to kill herself was when I was eight years old. Do you think an eight-year-old can… I dunno, Sofia, did you _ask_ for this responsibility? Did you ever have a _choice?_ Never mind that an eight-year-old should never, ever have to do that."
+"Sofia, that's not your responsibility!" exclaimed Alexey, so suddenly and loudly that Sofia reflexively jumped back. Alexey felt guilty for this, as he'd been trying his best to control his tone and volume, but he couldn't help it. "I mean, God, did nobody tell you? Someone told you, right? When… okay, sorry, I'll stop asking questions and just tell you what happened to me: the first time my mother tried to kill herself was when I was eight years old. Do you think an eight-year-old can… I dunno, Sofia, did you _ask_ for this responsibility? Did you ever have a _choice?_ Never mind that an eight-year-old should never, ever have to deal with _anything_ like that. I said I'd stop asking questions, so let me answer for you: she never gave you a choice, and she never should have dumped her problems on a little girl. _Obviously._ I'm, I'm genuinely asking now, though, sorry, but, you _know_ none of this is your fault, right? Please tell me you had, I dunno, some friend, or some… I dunno, literally anyone else, someone sane, who could tell you it's not… Sofia?"
+
+<div>By way of answering, Sofia only cried.</div>
+
+<br />
+
+---
+
+<br />
+
+"Garlic, ginger. Sichuan pepper," said Tosha, addressing the ingredients on the cutting board and in a small bowl in front of him. "Smashed and peeled the garlic. Peeled the ginger. Don't have to do anything to the pepper. Now I dice." Having already sharpened the knife, Tosha started cutting the garlic and ginger.
+
+Artemis and Vasilisa were hanging out just behind them, for lack of anything better to do. Artemis wanted to see if she'd bought the right ingredients, and Vasilisa just didn't want to be alone right now, not to mention that she was cut off from the study, which was the best source of books in the house. Tosha had decided to treat this development as an excuse to teach them his mapo tofu recipe.
+
+"That's the aromatics done," said Tosha, once they finished the dice. "Normally there'd be red peppers too but you guys don't like it if it's too spicy." He paused, trying to figure out how to present the next part of the recipe. "Uh. Guess I should toast the peppercorns. Um. How do you work this thing…?" The kitchen had a five-burner stovetop, but it was unclear how it was lit, as the knobs didn't seem to do anything. Tosha looked in the cabinet underneath, and discovered a propane tank. "Oh." The turn of a knob later, the gas was flowing.
+
+"Uh. Artemis, could you get me the matches, please?" asked Tosha.
+
+"Yeah, hold—"
+
+"Never mind," said Tosha, discovering four new matchbooks in a nearby drawer. "That's convenient."
+
+His companions waited patiently as he obtained a large cast-iron wok from a high shelf, the standard cookware for a Keleykhsky kitchen. They turned up the heat and lit the stove, setting the match aside.
+
+"Toast the peppercorns first. Until they leave little streaks of oil on the pan. Then… Artemis, what oils did you buy?"
+
+"Peanut oil, sesame oil, chili oil. And that Grandma stuff."
+
+"Lǎogānmā. Old godmother."
+
+"That."
+
+"Good. Now, I'll add the peanut oil and the garlic and ginger, and fry it for a bit on a low flame. Also the lǎogānmā. Then… did you buy dòubànjiàng?"
+
+"What?"
+
+"The fermented fava beans."
+
+"Oh. Yeah."
+
+"That comes next… oh, here it is."
+
+"Should I put on rice?" asked Vasilisa. Tosha had a strange habit of forgetting the rice.
+
+<div>"Oh, yeah, sorry," said Tosha. "Please do."</div>
+
+<br />
+
+---
+
+<br />
+
+
 
 <br />
 
