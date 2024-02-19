@@ -78,9 +78,85 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "That comes next… oh, here it is. Good, it's the spicy kind."
 
-"Should I put on rice?" asked Vasilisa. Tosha had a strange habit of forgetting the rice.
+"Should I start making rice?" asked Vasilisa. Tosha had a strange habit of forgetting the rice.
 
-<div>"Oh, yeah, sorry," said Tosha. "Please do."</div>
+<div>"Oh, yeah, sorry," said Tosha. "Please do. Should have started already."</div>
+
+<br />
+
+---
+
+<br />
+
+"…and my first suicide attempt was when I was _nine,_" said Sofia. "Just a year later. So, yes, of course there was a connection."
+
+"_Nine?_" asked Alexey incredulously. "God*damn.* I don't remember _anything_ from when I was nine. How'd you do it?"
+
+"Um," said Sofia, not really liking this direction of inquiry.
+
+"Sorry, insensitive question," said Alexey. "I just… I dunno if I even knew _how_ when I was nine."
+
+"Well, Mom was always warning me about sleeping with too many furs," said Sofia wistfully. This did spark a dim memory in Alexey's mind, but he kept quiet. "She said I'd pile too many on my face and suffocate. So… that's what I tried."
+
+"Well… did it work?"
+
+"…did I die?"
+
+"Sure," said Alexey. He was trying to titrate some levity back into the discussion, and hoped Sofia would pick up on it.
+
+"Yes, Alexey," replied Sofia, cracking a weak smile to show that she understood. "I died, and went to the Kingdom of the Dead. I just left, because it was boring there, and Mom still needed a therapist."
+
+"So you _do_ know what a therapist is," joked Alexey.
+
+"I do. I've only had to be one for the past… eighteen years, at least."
+
+"Then, I guess, that's my point. If you're such a good therapist, why did you yell at Vasilisa like that?"
+
+"Because…" Sofia was instantly frustrated again, as if argument about the broken idol had never ended. "She broke my idol! What in the blazes was I supposed to say? 'Oh, it's okay, dear, you survived and I have plenty more idols?'"
+
+"You weren't supposed to _diagnose_ her with _narcissism._"
+
+Sofia exploded. "Oh, like you never heard that from Mom! Like it wasn't… like it wasn't on the table! Big important Ryzhaya heiress, with a house full of disease spirits, what else would she use to insult you if she didn't like something you did? If she… if she spotted even an _inkling_ of similarity to an idol she had? Good grief, Alexey, I don't… I don't know how else to say it. I don't know what else I could have said."
+
+Alexey sighed, massaging his face slowly, trying to decide how best to unpack what he just heard. Eventually, he spoke: "Sofia… I dunno if this is news to you, but, our mother isn't exactly an example to be followed."
+
+Sofia crossed her arms and glared. "You think I don't know that?"
+
+"So then—"
+
+<div>"<i>But,</i>" insisted Sofia, "Who else do you expect me to become?"</div>
+
+<br />
+
+---
+
+<br />
+
+"Now we can add it to the wok," said Tosha, gesturing at a mound of tofu he'd just cut into large cubes while the aromatics and dòubànjiàng fried. "You're supposed to blanch the tofu first, to firm it up and get rid of the aftertaste, but, at the matchbox house we only had one stove, and I kind of like the aftertaste anyway, so I don't do that part."
+
+They carefully loaded the tofu on the blade of the knife and slid it into the wok, in batches. "Gypsum tofu like this will break easily if you push it around too hard. So, I have to be really gentle here."
+
+Artemis and Vasilisa's attention was now waning desperately, but they knew this was almost the end. This wasn't the first time they'd seen Tosha make mapo tofu, although it may have been the first time they paid more than passing attention.
+
+"And now…" Tosha filled a pot most of the way with cold water. "We turn it into soup." He dumped the water into the wok.
+
+Vasilisa let out a sigh of relief. "So, that's it then, right? Now you just let the soup simmer?"
+
+"Almost," said Tosha. "I've still gotta add some spices and stuff. And the leeks. But yeah." They obtained salt, white pepper, soy sauce, Hungarian hot paste, and some leeks from the grocery bags, nearly depleting them entirely. They sprinkled the spices in, and began washing the leeks, then cutting them into rings.
+
+Artemis sat down at the kitchen table, relieved to be able to focus on something else. "Hey, so, Vasilisa, what are you gonna read next, after that Ryzhaya book? _Metaphors_ or whatever?"
+
+"_Metamorphoses,_" corrected Vasilisa, "And, there was this bookshelf full of what looked like school textbooks that I wanted to go through. I mean, _first_ I'm gonna read that textbook on transformations, because that's the coolest thing ever and I wanna be a fox like _right_ now forever. But like, after I read through that, there's those other textbooks that I bet are pretty interesting. Also, there was this thing on the desk…" She frowned. "There was this packet of papers on the desk that looked really interesting. I think… I think it might be the last thing Alexey's mom read before she died. It was called _The Division… The Division of something and the Sun,__ or something, and the weird part is the author was called 'Yaminya.'"
+
+This did not ring a bell for Artemis, and she let Vasilisa know with a polite stare of incomprehension.
+
+"Yaminya is the hero of the Nenets epics," supplied Vasilisa. "She was some great shaman or something. I dunno if she's, like, the actual author of the packet or just someone's pen name or what, but if anyone has someone written by the historical Yaminya, it's _gotta_ be the Ryzhayas."
+
+Tosha chose this moment to join Artemis at the table. "Everything is done," they said. "Just gotta wait until it reduces. Maybe add starch."
+
+"And until the rice is done," reminded Vasilisa.
+
+<div>"And until the rice is done," agreed Tosha.</div>
 
 <br />
 
@@ -96,7 +172,7 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 <script>
     var disqus_config = function () {
     this.page.url = 'https://mszegedy.github.io/plea/';
-    this.page.identifier = 'ch-6';
+    this.page.identifier = 'ch-7';
     };
     (function() {
     var d = document, s = d.createElement('script');
