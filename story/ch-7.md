@@ -150,7 +150,7 @@ Artemis sat down at the kitchen table, relieved to be able to focus on something
 
 This did not ring a bell for Artemis, and she let Vasilisa know with a polite stare of incomprehension.
 
-"Yaminya is the hero of the Nenets epics," supplied Vasilisa. "She was some great shaman or something. I dunno if she's, like, the actual author of the packet or just someone's pen name or what, but if anyone has someone written by the historical Yaminya, it's _gotta_ be the Ryzhayas."
+"Yaminya is the hero of the Nenets epics," supplied Vasilisa. "She was some great shaman or something. I dunno if she's, like, the actual author of the packet or just someone's pen name or what, but if anyone has something written by the historical Yaminya, it's _gotta_ be the Ryzhayas."
 
 Tosha chose this moment to join Artemis at the table. "Everything is done," they said. "Just gotta wait until it reduces. Maybe add starch."
 
