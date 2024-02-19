@@ -68,9 +68,9 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "That."
 
-"Good. Now, I'll add the peanut oil and the garlic and ginger, and fry it for a bit on a low flame. Also the Lǎogānmā. Then… did you buy dòubànjiàng?"
+"Good. Now, I'll add the peanut oil and the garlic and ginger, and fry it on a low flame. Also the Lǎogānmā. Uh, low flame, because these burn easily. Let me… just…" Having already added the aforementioned ingredients to the wok, Tosha frantically rooted around the groceries to find a bottle of rice wine. Hands shaking, they uncorked it and poured some into the bubbling oil. "Sorry, usually that bottle's just there. Need it for deglazing. So stuff doesn't stick. Then… did you buy dòubànjiàng?"
 
-"What?"
+"What?" asked Artemis.
 
 "The fermented fava beans."
 
