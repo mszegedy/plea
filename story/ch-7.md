@@ -64,11 +64,11 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "Peanut oil, sesame oil, chili oil. And that Grandma stuff."
 
-"Lǎogānmā. Old godmother."
+"Lǎogānmā. Old Godmother."
 
 "That."
 
-"Good. Now, I'll add the peanut oil and the garlic and ginger, and fry it for a bit on a low flame. Also the lǎogānmā. Then… did you buy dòubànjiàng?"
+"Good. Now, I'll add the peanut oil and the garlic and ginger, and fry it for a bit on a low flame. Also the Lǎogānmā. Then… did you buy dòubànjiàng?"
 
 "What?"
 
@@ -76,7 +76,7 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "Oh. Yeah."
 
-"That comes next… oh, here it is."
+"That comes next… oh, here it is. Good, it's the spicy kind."
 
 "Should I put on rice?" asked Vasilisa. Tosha had a strange habit of forgetting the rice.
 
