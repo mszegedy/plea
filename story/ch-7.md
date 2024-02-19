@@ -188,7 +188,7 @@ Sofia had nothing to say to that.
 
 "...and if I _want_ to just hurt her instead? As payback?"
 
-"Then," said Alexey unhappily, "Suck it the _hell_ up. Or lose a friend."
+"Then," said Alexey menacingly, "Suck it the _hell_ up. Or lose a friend."
 
 The mirror twins were silent for a while.
 
