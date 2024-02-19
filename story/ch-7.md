@@ -116,7 +116,7 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "You weren't supposed to _diagnose_ her with _narcissism._"
 
-Sofia exploded. "Oh, like you never heard that from Mom! Like it wasn't… like it wasn't on the table! Big important Ryzhaya heiress, with a house full of disease spirits, what else would she use to insult you if she didn't like something you did? If she… if she spotted even an _inkling_ of similarity to an idol she had? Good grief, Alexey, I don't… I don't know how else to say it. I don't know what else I could have said."
+Sofia exploded. "Oh, like you never heard that from Mom! Like it wasn't… like it wasn't on the table! Big important Ryzhaya heiress, with a house full of disease spirits, what else would she use to insult you if she didn't like something you did? If she… if she spotted even an _inkling_ of similarity to an idol she had? Good grief, Alexey, I don't… kn-know how else to say it. I don't know what else I could have said."
 
 Alexey sighed, massaging his face slowly, trying to decide how best to unpack what he just heard. Eventually, he spoke: "Sofia… I dunno if this is news to you, but, our mother isn't exactly an example to be followed."
 
