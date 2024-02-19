@@ -112,7 +112,7 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "Then, I guess, that's my point. If you're such a good therapist, why did you yell at Vasilisa like that?"
 
-"Because…" Sofia was instantly frustrated again, as if argument about the broken idol had never ended. "She broke my idol! What in the blazes was I supposed to say? 'Oh, it's okay, dear, you survived and I have plenty more idols?'"
+"Because…" Sofia was instantly frustrated again, as if the argument about the broken idol had never ended. "She broke my idol! What in the blazes was I supposed to say? 'Oh, it's okay, dear, you survived and I have plenty more idols?'"
 
 "You weren't supposed to _diagnose_ her with _narcissism._"
 
