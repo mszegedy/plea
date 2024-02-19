@@ -207,7 +207,7 @@ Artemis bit her lip. Alexey was veering into letting his self-hatred do the talk
 
 Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants, and its main imports were large quantities of rice, and smaller quantities of fermented bean products to eat it with. The "kitchen" was a corner of the common area taken up by a cast iron storm kettle, detailed to resemble a vase tunicate, a stack of sooty cookware to its left, a bag of coal and a box of matches to its right.
 
-Vasilisa Petrovna Mirnaya was hanging out in the common area, feet propped up on the dining table, reading a pulp novel. Her casual demeanor belied an intense nerdiness, more truthfully represented by her large round reading glasses, colorful and fuzzy socks and sweater, and sweatpants.
+Vasilisa Pyotrovna Mirnaya was hanging out in the common area, feet propped up on the dining table, reading a pulp novel. Her casual demeanor belied an intense nerdiness, more truthfully represented by her large round reading glasses, colorful and fuzzy socks and sweater, and sweatpants.
 
 "Hey guys, what's up? God*damn* dude, you're gonna need a new hoodie."
 
