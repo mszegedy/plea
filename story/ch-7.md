@@ -184,7 +184,7 @@ Sofia had nothing to say to that.
 
 "What if," said Sofia slowly, "_I_ feel bad about it? And I want her to understand how badly she hurt _me?_"
 
-"Well, then," said Alexey, somewhah nonplussed, "_Tell_ her that. Directly. 'You hurt me and I expect an apology.' Or something. There are many words in the Russian language to express such a thing."
+"Well, then," said Alexey, somewhat nonplussed, "_Tell_ her that. Directly. 'You hurt me and I expect an apology.' Or something. There are many words in the Russian language to express such a thing."
 
 "...and if I _want_ to just hurt her instead? As payback?"
 
