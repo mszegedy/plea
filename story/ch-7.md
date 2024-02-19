@@ -164,7 +164,33 @@ Tosha chose this moment to join Artemis at the table. "Everything is done," they
 
 <br />
 
+"It should _never_ be your first resort." Alexey was presently formulating a lecture on the subject of hurtful speech, and struggling to phrase it in a way that Sofia might understand. "It was for Mom. But she was wrong, understand? She didn't achieve _anything_ good by belittling you and making up fake diseases. She just hurt you, and she hurt me, and now she's dead and we both have awful memories of her. That isn't... she didn't achieve her goals."
 
+Sofia, who thought of herself as a fairly nice person, was still a little miffed that Alexey was trying to convince her that she wasn't being nice enough. "'Not a first resort?'" she quoted sourly.
+
+"Nor your second, nor your third, nor really any resort when it comes to your friends," agreed Alexey. "I mean, come on, this is Vasilisa we're talking about. You don't know her very well, yet, but she's, like, the sweetest girl you'll ever meet. She's got nothing but love and enthusiasm, and it's really, really easy to break her heart if she trusts you. And like, forget that it's cruel and heartless, it's unproductive! If you abuse her---"
+
+"Excuse me, _abuse?_ I didn't _abuse_ her, Alexey."
+
+"Verbally and emotionally abuse, yes, you did," countered Alexey. "You hurt her in a way where you intentionally made it hard for her to deal with it. How easy is it to refute a diagnosis by a Ryzhaya? You _abused_ your authority to hurt her."
+
+Sofia had nothing to say to that.
+
+"Don't you want Vasilisa to be happy? Even if you just want her to work, people work a lot better when they're happy."
+
+"How exactly," said Sofia through gritted teeth, "Am I supposed to keep her 'happy' when she makes a mistake that both weakens us and nearly kills both her and Artemis?"
+
+"By reassuring her that you aren't mad at her! And that you're glad she made it out okay!" Alexey wasn't angry or trying to yell; if anything, he was enthusiastic that Sofia was finally asking the right questions. "You can be firm when you warn her to never make that mistake again, sure. That's a normal thing to do. Just don't try to make her feel bad about it. You can help her not make the mistake again by, I dunno, explaining to her why it was a mistake, or reminding her next time she might make it, or, I dunno, any number of things! But for God's sake, Sofia, don't _hurt_ her over it. She's hurt enough as it is. Save that for... Pyotr Lykov, or something. For your enemies."
+
+"What if," said Sofia slowly, "_I_ feel bad about it? And I want her to understand how badly she hurt _me?_"
+
+"Well, then," said Alexey, nonplussed, "_Tell_ her that. Directly. 'You hurt me and I expect an apology.' Or something. There are many words in the Russian language to express such a thing."
+
+"...and if I _want_ to just hurt her instead? As payback?"
+
+"Then," said Alexey unhappily, "Suck it the _hell_ up. Or lose a friend."
+
+The mirror twins were silent for a while.
 
 <br />
 
