@@ -216,7 +216,7 @@ Alexey and Sofia entered the kitchen to find their friends seated around the kit
 
 "It isn't 12! It's 24! _Red_ Marchthroughs are 12!"
 
-"Hi, guys," said Alexey. "Is Tosha okay?"
+"Hey, guys," said Alexey. "Is Tosha okay?"
 
 "'M fine," replied Tosha, without moving. "Just tired."
 
@@ -256,13 +256,27 @@ Alexey raised an eyebrow. Normally, small electric appliances cost six to ten ru
 
 "Sorry, um, what's a computer?" asked Sofia innocently.
 
-Alexey groaned and smacked his forehead with his hand. "It's, complicated, can we please not get into that right now?"
+Alexey smacked his forehead and groaned. "It's, complicated, can we please not get into that right now?"
 
 "It's okay," said Artemis, "I've got this."
 
 "No," said Alexey, "You absolutely _don't_ got this. Please don't start explaining computers to Sofia. I'd have to kill myself."
 
 Artemis was suddenly very stern. "Do _not_ joke about that. We agreed, Alyosha. We do _not_ joke about suicide in our house."
+
+"Since when is it the null hypothesis that my Sump brain-worms are a _joke?_"
+
+Sofia was very lost. "Wait, computers are a _Sump_ thing?"
+
+"No," said both Alexey and Artemis. "Not inherently," continued Alexey, "But they're, like, weirdly obsessed with them. Both Artemis and I have heard _way_ too much about computers from them."
+
+"Well, in that case, shouldn't I be informed about them?" asked Sofia. "Since the Sump want to kill us and all. In fact, you two clearly have history with the Sump, so can we maybe sit down and---"
+
+"Yes," said Alexey, pained. "We'll go over that, later. Can you _please_ give us time to prepare ourselves emotionally first, though? It's a really tragic story and we don't like being reminded of it."
+
+"I'm fine with doing it now, actually," said Artemis. Alexey looked at her, silently begging her not to betray him like this. "_Alone,_ obviously. Alexey doesn't have to be there for it."
+
+"Alright, I'll put it on the agenda," said Sofia. "But I actually already had a plan for what to do next. I want to get _everyone_ in the study, so that I can fully explain the political situation we're in. Vasilisa, I'm sorry I got angry at you, and I'm _really_ sorry I reacted to it like my mom would, diagnosing you with mental health issues. I sincerely appreciate your help, and it's not your fault that you made a mistake. As the Ryzhaya, it's my responsibility to oversee you, and I didn't do a good enough job of preparing you. It was my fault."
 
 <br />
 
