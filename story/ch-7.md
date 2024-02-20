@@ -246,7 +246,23 @@ Alexey and Sofia entered the kitchen to find their friends seated around the kit
 
 "Sofia, practically _everyone_ has a working phone line," said Alexey. "It's just Shtchavel House that's stuck in the Age of Steam."
 
-"Oh, yeah, that reminds me," said Artemis, "I bought a rice cooker"
+"Oh, yeah, that reminds me," said Artemis, "I bought a rice cooker at Eurosmak. I think it's a Japanese import they couldn't sell, because it cost literally just one ruble."
+
+Alexey raised an eyebrow. Normally, small electric appliances cost six to ten rubles, which was a week's worth of food for the four of them.
+
+"Well," he said, "Good job, but, like I said, we don't have electricity."
+
+"But, aren't we rich?" asked Artemis. "_And_ we know Saffron, an actual electrician. We should hire them to wire the house up. We could install a phone line, maybe even get a computer---"
+
+"Sorry, um, what's a computer?" asked Sofia innocently.
+
+Alexey groaned and smacked his forehead with his hand. "It's, complicated, can we please not get into that right now?"
+
+"It's okay," said Artemis, "I've got this."
+
+"No," said Alexey, "You absolutely _don't_ got this. Please don't start explaining computers to Sofia. I'd have to kill myself."
+
+Artemis was suddenly very stern. "Do _not_ joke about that. We agreed, Alyosha. We do _not_ joke about suicide in our house."
 
 <br />
 
