@@ -206,7 +206,7 @@ The silence stretched longer.
 
 <br />
 
-Alexey and Sofia entered the kitchen to find their friends seated around the kitchen table. Tosha was resting their head on it, nestled in their arms, while Artemis and Vasilisa were having some extremely incomprehensible argument.
+Alexey and Sofia entered the kitchen to find their friends seated around the kitchen table. Tosha was resting their head on it, nestled in their arms, while Artemis and Vasilisa were having some incomprehensible argument.
 
 "...and that means it's worth 20!" insisted Vasilisa.
 
@@ -216,7 +216,7 @@ Alexey and Sofia entered the kitchen to find their friends seated around the kit
 
 "It isn't 12! It's 24! _Red_ Marchthroughs are 12!"
 
-"Um," said Alexey. "Is Tosha okay?"
+"Hi, guys," said Alexey. "Is Tosha okay?"
 
 "'M fine," replied Tosha, without moving. "Just tired."
 
