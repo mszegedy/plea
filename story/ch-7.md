@@ -218,7 +218,7 @@ Alexey and Sofia entered the kitchen to find their friends seated around the kit
 
 "Um," said Alexey. "Is Tosha okay?"
 
-"'M fine," replied Tosha. "Just tired."
+"'M fine," replied Tosha, without moving. "Just tired."
 
 "What the hell are the girls arguing about?"
 
