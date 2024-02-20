@@ -194,7 +194,7 @@ The twins were silent for a while, uneasy.
 
 "Okay," said Sofia, "Fine. I get it. I promise I'll... not be mean. Or abusive. I won't diagnose people with things if I'm angry at them, and I'll, um, I'll apologize to Vasilisa. I promise, Alexey, I really promise I'm trying to be a friend. I'm... sorry I'm not as good at it as I thought I was. I promise I'll do better."
 
-"You know," said Alexey, meeting Sofia's eyes, "Mom would never have said any of that."
+"You know," said Alexey, "Mom would never have said any of that."
 
 The silence stretched longer.
 
