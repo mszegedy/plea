@@ -206,7 +206,47 @@ The silence stretched longer.
 
 <br />
 
+Alexey and Sofia entered the kitchen to find their friends seated around the kitchen table. Tosha was resting their head on it, nestled in their arms, while Artemis and Vasilisa were having some extremely incomprehensible argument.
 
+"...and that means it's worth 20!" insisted Vasilisa.
+
+"That's _bullshit,_" countered Artemis. "Red doubles the value, not quadruples it. It's worth 10. You're confusing it with an Open Betli. _That's_ worth 20."
+
+"Then explain how an Open Marchthrough is worth 12? Betlis don't behave the same way as other bids. Red isn't even the trump suit in a Rebetli."
+
+"It isn't 12! It's 24! _Red_ Marchthroughs are 12!"
+
+"Um," said Alexey. "Is Tosha okay?"
+
+"'M fine," replied Tosha. "Just tired."
+
+"What the hell are the girls arguing about?"
+
+"Card game."
+
+"Vasilisa wanted to play Ulti, but couldn't remember how bids are scored," explained Artemis.
+
+"What no _you_ don't remember how they're scored---" began Vasilisa in outrage.
+
+"Okay, okay, fine. What the hell is Ulti?" asked Alexey.
+
+"A Hungarian card game," said Vasilisa. "I got reminded of it after seeing some books written in Hungarian. And Tosha's hot paste."
+
+"Okay," said Alexey. "Why do you _both_ know how to play it?"
+
+"Saffron taught me," said Artemis, "And Vasilisa's just a nerd."
+
+"So, go down to the train station and call Saffron, then," said Alexey.
+
+"Um," interrupted Sofia, "Who's Saffron?"
+
+"A friend of ours who lives in Surkhant," explained Artemis. "She's Hungarian."
+
+"And she has a working phone line...?"
+
+"Sofia, practically _everyone_ has a working phone line," said Alexey. "It's just Shtchavel House that's stuck in the Age of Steam."
+
+"Oh, yeah, that reminds me," said Artemis, "I bought a rice cooker"
 
 <br />
 
