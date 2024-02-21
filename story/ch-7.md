@@ -2,8 +2,6 @@
 title: Chapter 7
 ---
 
-**This chapter is unfinished.**
-
 [**Previous**](ch-6.html)
 
 The only seating in the study was the chair behind the desk, but Alexey declined even that. He instead opted to sit irreverently on the grand desk itself, putting him almost half a meter above eye level with Sofia. She could have stolen past him and taken the chair for herself, but she was too intimidated to try.
@@ -328,7 +326,73 @@ Artemis and Tosha were still discussing the potential of opening a Sichuanese re
 
 "It is an _impenetrably_ boring read. Do _not_ attempt to read it.
 
-"I don't know if Purtov did it on purpose, but it is very lucky that his work is illegible and soporific in even the smallest doses. This book was published very widely, and everyone in Keleykh now has a copy."
+"I don't know if Purtov did it on purpose, but it is very lucky that his work is soporific in even the smallest doses. This book was published very widely, and everyone in Keleykh now has a copy. If anybody had actually been able to make use of this book, the landscape he described would have changed instantly. As it stands, even the territory maps are current. And that's what I'm about to use, because it's basically the only legible part of the book."
+
+Sofia started outlining shapes on the map with her finger, encircling regions that were stained in various colors of pastel ink.
+
+"There are basically three big factions in Keleykh: the Sump, the Tonins, and the Siberian Miners' Industrial Union, also known as Sibgorprom. Let's cover Sibgorprom first, because their headquarters aren't on this map. They're based out of Norilsk, and while they have some influence over all of Siberia, their geographic proximity to Keleykh makes them particularly relevant here."
+
+"Wait," said Vasilisa. "I've actually heard basically the opposite. Haven't they been trying to control Keleykh for years and failing?"
+
+"I mean, do you see any mining being done here?" said Sofia.
+
+"I guess not," admitted Vasilisa.
+
+"…the miners' union wants to prevent mining?" asked Tosha, very confused.
+
+"They want to prevent people from digging up abominations, yeah," said Vasilisa.
+
+"_Although_ I should point out that we have plenty of abominations anyway," said Sofia. "There are lots of theories on where abominations come from, and the most current literature claims that mining doesn't significantly contribute to their numbers. I think Sibgorprom has some other reason they want mining outside of Norilsk to stop, and they just won't say."
+
+"I dunno. From what I read, even the Siberian Traps are supposed to prevent mining, and those are older than civilization itself," said Vasilisa, referring to the strange concrete and metallic structures encrusting Siberia. "You know those poles with the cones at the top where if you put your ear up to 'em you can hear, like, insane ramblings? Those are supposed to be warning you about abominations, I'm pretty sure."
+
+"The Traps are much older than the abominations," said Sofia flatly. "Nobody can agree on when the abominations arrived in Siberia, yes, but _everyone_ agrees that they didn't used to be here, which means they arrived at most a few hundred years ago. Personally, I believe that they were brought here by whatever it is that also brought oil machinery here."
+
+"Look, I get the connection," said Vasilisa. "They both have to do with oil, and they both showed up recently. But oil machines are plants, and abominations are animals. And they have, like, nothing to do with each other. You can harvest oil from the machines. But you can't, I dunno, milk abominations for tar."
+
+"I mean, have you tried?" joked Alexey. Vasilisa playfully swatted his hair.
+
+"I've got a book somewhere around here by Ovsyannikov from the late 1800s where he deduces they're not entirely animals, actually," said Sofia. "They're, uh… 'demosponge holobionts'. Their body is made of sponges, but the way they move is that there's a slime mold inside them that pumps itself around, or something. I don't know. We're getting off-topic.
+
+"The point is, Sibgorprom is only the third most powerful faction in Keleykh. They have strong ties to the Sump, because the Sump hates abominations almost as much as they do, but they would rather the Sump not exist and control Keleykh for themselves. It goes without saying that, like pretty much everyone else in Keleykh, Sibgorprom hates us, because they think disease spirits are connected to abominations, and they don't like the fact that we're keeping a couple hundred of them locked up in idols around here."
+
+"How many of them do you have?" asked Artemis. "Is there like, a list of them?"
+
+"There's a few lists, yes," said Sofia. "But I'd rather go over those later. It's less useful to know than you'd think. As for how many, I'd guess… about 240 or so."
+
+Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and as a way of having her back, completed the whistle for her.
+
+"Yes, we have maybe 10% of all idols in the entirety of Keleykh," said Sofia. "Unlike other factions, our power doesn't come from gods, just idols and mosquitos, for the most part."
+
+"Sibgorprom's power comes from gods?" asked Tosha.
+
+"Well, okay, I guess theirs doesn't either," said Sofia. "Honestly, I don't know _where_ Sibgorprom's power comes from. I don't know how they flipped Norilsk upside down or whatever it is they did to it. They're our most mysterious opponents, and that's very bad for us.I don't think even Purtov knew how they became powerful."
+
+"Sounds like a good faction to approach diplomatically," said Artemis. "I mean, if we want to get to know them better, and we have a common enemy in the Sump."
+
+"They're not outright enemies with the Sump, and they'd _definitely_ choose the Sump over us," said Sofia. "I think diplomacy with them would be a waste of time. But, I don't know, maybe it's worth sending them a letter or something.
+
+"Anyway, that's Sibgorprom covered. Next, the second most powerful faction in Keleykh: the Tonins. They actually used to be the first, before the Sump existed, and they're still the scariest in terms of sheer size and scale. The reason _they_ hate us, apart from it being politically convenient, is that they're direct competitors to us. They own Keleykh General Hospital, they used to own Dubrovka's asylum before that shut down, and in general they have a near-monopoly on medicine in Keleykh."
+
+"So, that's their thing? They're Keleykh's doctors?" asked Vasilisa.
+
+"Well… no," said Sofia. "All but a few are actually fishermen. Fishing is traditionally connected to medicine in Samoyedic culture, and the Tonins were fishermen-shamans before they were doctors. They are the favored faction of the Sea-Mother. They usually take the form of loons, whose beaks can snap up disease spirits out of people like they snap up fish. If you see a loon far from the seashore, that's probably a Tonin spying on us. In fact, there's probably a Tonin spying on us right now. There's at least fifty of them.
+
+"The good news is, they're a lot more self-interested than the Sump or Sibgorprom. They only really care about maintaining power, so if we can offer them a good enough deal, they'll betray the Sump for us. Hopefully."
+
+"What do we have to offer them?" asked Artemis.
+
+"Uh… not much, I guess," said Sofia. "Our idols aren't for sale, and nobody besides the Ryzhayas want them anyway. We might be able to pay them off, but it would deplete the Ryzhaya fortune fast. My ancestors didn't accumulate it by paying the Tonins protection money, anyway. But if we manage to steal assets from the Sump, or something, or create new ones, we could buy the Tonins' loyalty with those."
+
+Artemis nodded. She had some ideas on both of those fronts.
+
+"The Tonins control nearly half the town. Their headquarters are located here, within Keleykh General Hospital," said Sophia, pointing to a blue patch on the map. "We should make contact with them sooner rather than later. We don't want the Sump striking a deal with them. Which brings me to the last big faction.
+
+"The Sump."
+
+<br />
+
+[**Next**](ch-8.html)
 
 <br />
 
