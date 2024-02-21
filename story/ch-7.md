@@ -262,7 +262,7 @@ Alexey smacked his forehead and groaned. "It's, complicated, can we please not g
 
 "No," said Alexey, "You absolutely _don't_ got this. Please don't start explaining computers to Sofia. I'd have to kill myself."
 
-Artemis was suddenly very stern. "Do _not_ joke about that. We agreed, Alyosha. We do _not_ joke about suicide in our house."
+"Do _not_ joke about that," shot back Artemis. "We agreed, Alyosha. We do _not_ joke about suicide in our house."
 
 "Since when is it the null hypothesis that my Sump brain-worms are a _joke?_"
 
@@ -320,9 +320,15 @@ Alexey just groaned wearily.
 
 <br />
 
-As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem. Tosha, not wanting Sofia to be left out of the food, decided to try spooning the soup over its own reflective surface and mixing it back in, creating a sort of mapo tofu racemate as the soup was exchanged with its reflection. Sofia had to help them at first, as Tosha had never reached through a mirror before, but eventually they were able to handle it on their own. "Next time, I'll do it to the rice while I wash it, too," they said. The entire group ate the racemic mapo tofu, and agreed that while it tasted a little unusual, it had a more complex flavor than the traditional enantiopure version.
+As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem. Tosha, not wanting Sofia to be left out of the food, decided to try spooning the soup over its own reflective surface and mixing it back in, creating a sort of mapo tofu racemate as the soup was exchanged with its reflection. Sofia had to help them at first, as Tosha had never reached through a mirror before, but eventually they were able to handle it on their own. "Next time, I'll do it to the rice while I wash it, too," they said. Initially, Artemis objected that this may not be safe to eat, but Alexey drew her away into an argument about oxidative stress while Tosha served the food. Eventually, everyone ate from the racemic mapo tofu, and agreed that while it tasted a little unusual, it had a more complex flavor than the traditional enantiopure version, and most certainly didn't seem poisonous.
 
-Artemis and Tosha were still discussing the potential of opening a Sichuanese restaurant built around this trick when Sofia shooed everyone upstairs, and seated them around the study's desk. She selected a three-volume set from the bookshelves titled _A social history of the Aas Basin_ and unfolded a map from inside the front cover of the first volume.
+Artemis and Tosha were still discussing the potential of opening a Sichuanese restaurant built around this trick when Sofia shooed everyone upstairs, and seated them around the study's desk. She selected a three-volume set from the bookshelves titled _A social history of the Basin of Aas_ and unfolded a map from inside the front cover of the first volume.
+
+"This book," began Sofia, "Was Nikolay Nikolaevitch Purtov II's magnum opus. He spent the last fifty years of his life compiling everything he knew about this part of Siberia, from both a political and economic perspective. Every single faction in Keleykh is detailed here, all of their strengths, weaknesses, geography, and history laid bare. All published just four years ago, upon his death. Reading this book all the way through grants you practically _deific_ comprehension of Keleykh's power structure. You would know every string that can be pulled, every nerve that can be hit.
+
+"It is an _impenetrably_ boring read. Do _not_ attempt to read it.
+
+"I don't know if Purtov did it on purpose, but it is very lucky that his work is illegible and soporific in even the smallest doses. This book was published very widely, and everyone in Keleykh now has a copy."
 
 <br />
 
