@@ -192,7 +192,7 @@ Sofia had nothing to say to that.
 
 The twins were silent for a while, uneasy.
 
-"Okay," said Sofia, "Fine. I get it. I promise I'll... not be mean. Or abusive. I won't diagnose people with things if I'm angry at them, and I'll, um, I'll apologize to Vasilisa. I promise, Alexey, I really promise I'm trying to be a friend. I'm... sorry I'm not as good at it as I thought I was. I promise I'll do better."
+"Okay," said Sofia, "Fine. I get it. I promise I'll… not be mean. Or abusive. I won't diagnose people with things if I'm angry at them, and I'll, um, I'll apologize to Vasilisa. I promise, Alexey, I really promise I'm trying to be a friend. I'm… sorry I'm not as good at it as I thought I was. I promise I'll do better."
 
 "You know," said Alexey, "Mom would never have said any of that."
 
@@ -208,7 +208,7 @@ The silence stretched longer.
 
 Alexey and Sofia entered the kitchen to find their friends seated around the kitchen table. Tosha was resting their head on it, nestled in their arms, while Artemis and Vasilisa were having some incomprehensible argument.
 
-"...and that means it's worth 20!" insisted Vasilisa.
+"…and that means it's worth 20!" insisted Vasilisa.
 
 "That's _bullshit,_" countered Artemis. "Red doubles the value, not quadruples it. It's worth 10. You're confusing it with an Open Betli. _That's_ worth 20."
 
@@ -226,7 +226,7 @@ Alexey and Sofia entered the kitchen to find their friends seated around the kit
 
 "Vasilisa wanted to play Ulti, but couldn't remember how bids are scored," explained Artemis.
 
-"What no _you_ don't remember how they're scored---" began Vasilisa in outrage.
+"What no _you_ don't remember how they're scored—" began Vasilisa in outrage.
 
 "Okay, okay, fine. What the hell is Ulti?" asked Alexey.
 
@@ -242,7 +242,7 @@ Alexey and Sofia entered the kitchen to find their friends seated around the kit
 
 "A friend of ours who lives in Surkhant," explained Artemis. "She's Hungarian."
 
-"And she has a working phone line...?"
+"And she has a working phone line…?"
 
 "Sofia, practically _everyone_ has a working phone line," said Alexey. "It's just Shtchavel House that's stuck in the Age of Steam."
 
@@ -252,7 +252,7 @@ Alexey raised an eyebrow. Normally, small electric appliances cost six to ten ru
 
 "Well," he said, "Good job, but, like I said, we don't have electricity."
 
-"But, aren't we rich?" asked Artemis. "_And_ we know Saffron, an actual electrician. We should hire them to wire the house up. We could install a phone line, maybe even get a computer---"
+"But, aren't we rich?" asked Artemis. "_And_ we know Saffron, an actual electrician. We should hire them to wire the house up. We could install a phone line, maybe even get a computer—"
 
 "Sorry, um, what's a computer?" asked Sofia innocently.
 
@@ -270,13 +270,57 @@ Sofia was very lost. "Wait, computers are a _Sump_ thing?"
 
 "No," said both Alexey and Artemis. "Not inherently," continued Alexey, "But they're, like, weirdly obsessed with them. Both Artemis and I have heard _way_ too much about computers from them."
 
-"Well, in that case, shouldn't I be informed about them?" asked Sofia. "Since the Sump want to kill us and all. In fact, you two clearly have history with the Sump, so can we maybe sit down and---"
+"Well, in that case, shouldn't I be informed about them?" asked Sofia. "Since the Sump want to kill us and all. In fact, you two clearly have history with the Sump, so can we maybe sit down and—"
 
 "Yes," said Alexey, pained. "We'll go over that, later. Can you _please_ give us time to prepare ourselves emotionally first, though? It's a really tragic story and we don't like being reminded of it."
 
 "I'm fine with doing it now, actually," said Artemis. Alexey looked at her, silently begging her not to betray him like this. "_Alone,_ obviously. Alexey doesn't have to be there for it."
 
-"Alright, I'll put it on the agenda," said Sofia. "But I actually already had a plan for what to do next. I want to get _everyone_ in the study, so that I can fully explain the political situation we're in. Vasilisa, I'm sorry I got angry at you, and I'm _really_ sorry I reacted to it like my mom would, diagnosing you with mental health issues. I sincerely appreciate your help, and it's not your fault that you made a mistake. As the Ryzhaya, it's my responsibility to oversee you, and I didn't do a good enough job of preparing you. It was my fault."
+"Alright, I'll put it on the agenda," said Sofia. "But I already had a plan for what to do next, actually. I want to get _everyone_ in the study, so that I can fully explain the political situation we're in. Vasilisa, I'm sorry I got angry at you, and I'm _really_ sorry I reacted to it like my mom would, diagnosing you with mental health issues. I sincerely appreciate your help, and it's not your fault that you made a mistake. As the Ryzhaya, it's my responsibility to oversee you, and I didn't do a good enough job of preparing you. It was my fault."
+
+"For what it's worth," said Vasilisa, "I do have mental health issues. Depression and ADHD at a minimum."
+
+"I see," said Sofia. "Thank you for trusting me enough to tell me that. Especially after before."
+
+Vasilisa gave a warm smile. "Thank you for apologizing. I… don't get that a lot. Outside my friends, I mean."
+
+"So… yeah, can everyone please follow me to the study?" asked Sofia. "And bring a chair from the dining room. We're never going to use that dining room, and if the study is going to be our war room in the future, I'd like for everyone to be able to sit there."
+
+"Oh man guys, this is it!" said Vasilisa. "We're finally about to learn all the Ryzhaya lore! And we have a _war room,_ god*damn.*"
+
+"Can you please stop calling it 'Ryzhaya lore'?" grumbled Alexey. "This is me and Sofia's lives we're talking about."
+
+"Alyosha, come on, don't ruin it for her," said Artemis. "It's good if she's enthusiastic."
+
+"Temmie, you didn't just go over all the worst things my mother did with Sofia," said Alexey. "I'm sorry if I don't feel too good about the Ryzhayas after that, but, fuck, I just can't do it."
+
+"Okay, okay, I'm sorry," said Vasilisa. "That was insensitive. But still! Call it, uh, Keleykhsky lore, then. I am _so excited_ to learn who's out to kill us."
+
+Alexey just groaned wearily.
+
+"I don't like the dining room chairs," said Tosha. "I'll bring one from the kitchen table."
+
+"Just bring it back, or else you'll miss it when we eat," said Artemis.
+
+"Oh, right. Hm. I guess I'll bring a dining room chair, then."
+
+"Also, nobody's had their meds yet," said Alexey. "And nobody's eaten yet. I think let's eat and take our meds, and then do the… uh… council of war?"
+
+"Alright, but quickly," said Sofia. "There's a lot of topics to address, and I remember them right now, but I'm likely to forget them later."
+
+"We also need to address the chirality issue before Sofia eats," said Artemis. "I don't want to feed her food with the wrong handedness. I have no idea if it's safe for her."
+
+"If it helps, the mapo tofu smells good," said Sofia.
+
+<div>"That helps," agreed Artemis.</div>
+
+<br />
+
+---
+
+<br />
+
+As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem.
 
 <br />
 
