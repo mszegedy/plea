@@ -318,7 +318,7 @@ Alexey just groaned wearily.
 
 <br />
 
-As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem. Tosha, not wanting Sofia to be left out of the food, decided to try spooning the soup over its own reflective surface and mixing it back in, creating a sort of mapo tofu racemate as the soup was exchanged with its reflection. Sofia had to help them at first, as Tosha had never reached through a mirror before, but eventually they were able to handle it on their own. "Next time, I'll do it to the rice while I wash it, too," they said. Initially, Artemis objected that this may not be safe to eat, but Alexey drew her away into an argument about oxidative stress while Tosha served the food. Eventually, everyone ate from the racemic mapo tofu, and agreed that while it tasted a little unusual, it had a more complex flavor than the traditional enantiopure version, and most certainly didn't seem poisonous.
+As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem. Tosha, not wanting Sofia to be left out of the food, decided to try spooning the soup over its own reflective surface and mixing it back in, creating a sort of mapo tofu racemate as the soup was exchanged with its reflection. Sofia had to help them at first, as Tosha had never reached through a mirror before, but eventually they were able to handle it on their own. "Next time, I'll do it to the rice while I wash it, too," they said. Initially, Artemis objected that this may not be safe to eat, but Alexey drew her away into an argument about oxidative stress while Tosha served the food. Eventually, everyone ate some, and agreed that while it tasted a little unusual, it had a more complex flavor than the traditional enantiopure version, and most certainly didn't seem poisonous.
 
 Artemis and Tosha were still discussing the potential of opening a Sichuanese restaurant built around this trick when Sofia shooed everyone upstairs, and seated them around the study's desk. She selected a three-volume set from the bookshelves titled _A social history of the Basin of Aas_ and unfolded a map from inside the front cover of the first volume.
 
@@ -374,7 +374,7 @@ Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and
 
 "Anyway, that's Sibgorprom covered. Next, the second most powerful faction in Keleykh: the Tonins. They actually used to be the first, before the Sump existed, and they're still the scariest in terms of sheer size and scale. The reason _they_ hate us, apart from it being politically convenient, is that they're direct competitors to us. They own Keleykh General Hospital, they used to own Dubrovka's asylum before that shut down, and in general they have a near-monopoly on medicine in Keleykh."
 
-"So, that's their thing? They're Keleykh's doctors?" asked Vasilisa.
+"So, that's their thing? They're Keleykh's doctors?" asked Vasilisa, habitually trying to demonstrate that she was still paying attention.
 
 "Well… no," said Sofia. "All but a few are actually fishermen. Fishing is traditionally connected to medicine in Samoyedic culture, and the Tonins were fishermen-shamans before they were doctors. They are the favored faction of the Sea-Mother. They usually take the form of loons, whose beaks can snap up disease spirits out of people like they snap up fish. If you see a loon far from the seashore, that's probably a Tonin spying on us. In fact, there's probably a Tonin spying on us right now. There's at least fifty of them.
 
