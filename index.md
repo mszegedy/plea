@@ -37,3 +37,5 @@ _Plea to the Moon-Mother_ is supposed to be both scarier and happier than *Pact*
 [Chapter 5](story/ch-5.html)
 
 [Chapter 6](story/ch-6.html)
+
+[Chapter 7](story/ch-7.html)
