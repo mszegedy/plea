@@ -352,7 +352,7 @@ Sofia started outlining shapes on the map with her finger, encircling regions th
 
 "I mean, have you tried?" joked Alexey. Vasilisa playfully swatted his hair.
 
-"I've got a book somewhere around here by Ovsyannikov from the late 1800s where he deduces they're not entirely animals, actually," said Sofia. "They're, uh… 'demosponge holobionts'. Their body is made of sponges, but the way they move is that there's a slime mold inside them that pumps itself around, or something. I don't know. We're getting off-topic.
+"I've got a book somewhere around here by Ovsyannikov from the late 1800s where he deduces they're not entirely animals, actually," said Sofia. "They're, uh… 'demosponge holobionts'. Their bodies are made of sponges, but the way they move is that there's a slime mold inside them that pumps itself around, or something. I don't know. We're getting off-topic.
 
 "The point is, Sibgorprom is only the third most powerful faction in Keleykh. They have strong ties to the Sump, because the Sump hates abominations almost as much as they do, but they would rather the Sump not exist and control Keleykh for themselves. It goes without saying that, like pretty much everyone else in Keleykh, Sibgorprom hates us, because they think disease spirits are connected to abominations, and they don't like the fact that we're keeping a couple hundred of them locked up in idols around here."
 
