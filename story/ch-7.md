@@ -50,7 +50,7 @@ Sofia choked on a sob. "It…" she whispered, as Alexey released her from the hu
 
 Artemis and Vasilisa were hanging out just behind them, for lack of anything better to do. Artemis wanted to see if she'd bought the right ingredients, and Vasilisa just didn't want to be alone right now, not to mention that she was cut off from the study, which was the best source of books in the house. Tosha had decided to treat this development as an excuse to teach them his mapo tofu recipe.
 
-"That's the aromatics done," said Tosha, once they finished the dice. "Normally there'd be red peppers too but you guys don't like it if it's too spicy." He paused, trying to figure out how to present the next part of the recipe. "Uh. Guess I should toast the peppercorns. Um. How do you work this thing…?" The kitchen had a five-burner stovetop, but it was unclear how it was lit, as the knobs didn't seem to do anything. Tosha looked in the cabinet underneath, and discovered a propane tank. "Oh." The turn of a knob later, the gas was flowing.
+"That's the aromatics done," said Tosha, once they finished the dice. "Normally there'd be red peppers too but you guys don't like it if it's too spicy." They paused, trying to figure out how to present the next part of the recipe. "Uh. Guess I should toast the peppercorns. Um. How do you work this thing…?" The kitchen had a five-burner stovetop, but it was unclear how it was lit, as the knobs didn't seem to do anything. Tosha looked in the cabinet underneath, and discovered a propane tank. "Oh." The turn of a knob later, the gas was flowing.
 
 "Uh. Artemis, could you get me the matches, please?" asked Tosha.
 
