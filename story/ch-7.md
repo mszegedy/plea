@@ -344,7 +344,7 @@ Sofia started outlining shapes on the map with her finger, encircling regions th
 
 "_Although_ I should point out that we have plenty of abominations anyway," said Sofia. "There are lots of theories on where abominations come from, and the most current literature claims that mining doesn't significantly contribute to their numbers. I think Sibgorprom has some other reason they want mining outside of Norilsk to stop, and they just won't say."
 
-"I dunno. From what I read, even the Siberian Traps are supposed to prevent mining, and those are older than civilization itself," said Vasilisa, referring to the strange concrete and metallic structures encrusting Siberia. "You know those poles with the cones at the top where if you put your ear up to 'em you can hear, like, insane ramblings? Those are supposed to be warning you about abominations, I'm pretty sure."
+"I dunno. From what I read, even the Siberian Traps are supposed to prevent mining, and those are older than civilization itself," said Vasilisa, referring to the strange concrete and metallic structures encrusting Siberia. "You know those poles with the cones at the top where if you put your ear up to 'em you can hear, like, insane ramblings about how you're gonna die, or whatever? Those are supposed to be warning you about abominations, I'm pretty sure."
 
 "The Traps are much older than the abominations," said Sofia flatly. "Nobody can agree on when the abominations arrived in Siberia, yes, but _everyone_ agrees that they didn't used to be here, which means they arrived at most a few hundred years ago. Personally, I believe that they were brought here by whatever it is that also brought oil machinery here."
 
