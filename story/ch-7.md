@@ -372,7 +372,7 @@ Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and
 
 "They're not outright enemies with the Sump, and they'd _definitely_ choose the Sump over us," said Sofia. "I think diplomacy with them would be a waste of time. But, I don't know, maybe it's worth sending them a letter or something.
 
-"Anyway, that's Sibgorprom covered. Next, the second most powerful faction in Keleykh: the Tonins. They actually used to be the first, before the Sump existed, and they're still the scariest in terms of sheer size and scale. The reason _they_ hate us, apart from it being politically convenient, is that they're direct competitors to us. They own Keleykh General Hospital, they used to own Dubrovka's asylum before that shut down, and in general they have a near-monopoly on medicine in Keleykh."
+"Anyway, that's Sibgorprom covered. Next, the second most powerful faction in Keleykh: the Tonins. They actually used to be the first, before the Sump existed, and they're still the scariest in terms of sheer power and diversity. They have the most shamans of any faction, and have their fingerprints on almost every business in Keleykh. The reason _they_ hate us, apart from it being politically convenient, is that they're direct competitors to us. They own Keleykh General Hospital, they used to own Dubrovka's asylum before that shut down, and in general they have a near-monopoly on medicine in Keleykh."
 
 "So, that's their thing? They're Keleykh's doctors?" asked Vasilisa, habitually trying to demonstrate that she was still paying attention.
 
