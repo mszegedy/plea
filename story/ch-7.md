@@ -366,7 +366,7 @@ Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and
 
 "Sibgorprom's power comes from gods?" asked Tosha.
 
-"Well, okay, I guess theirs doesn't either," said Sofia. "Honestly, I don't know _where_ Sibgorprom's power comes from. I don't know how they flipped Norilsk upside down or whatever it is they did to it. They're our most opaque opponents, and that's very bad for us.I don't think even Purtov knew how they became powerful."
+"Well, okay, I guess theirs doesn't either," said Sofia. "Honestly, I don't know _where_ Sibgorprom's power comes from. I don't know how they flipped Norilsk upside down or whatever it is they did to it. They're our most opaque opponents, and that's very bad for us. I don't think even Purtov knew how they became powerful."
 
 "Sounds like a good faction to approach diplomatically," said Artemis. "I mean, if we want to get to know them better, and we have a common enemy in the Sump."
 
