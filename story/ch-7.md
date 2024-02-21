@@ -58,7 +58,7 @@ Artemis and Vasilisa were hanging out just behind them, for lack of anything bet
 
 "Never mind," said Tosha, discovering four new matchbooks in a nearby drawer. "That's convenient."
 
-His companions waited patiently as he obtained a large cast-iron wok from a high shelf, the standard cookware for a Keleykhsky kitchen. They turned up the heat and lit the stove, setting the match aside.
+His companions waited patiently as he obtained a large cast-iron wok from a high shelf, the standard cookware for a Keleykhsky kitchen. He turned up the heat and lit the stove, setting the match aside.
 
 "Toast the peppercorns first. Until they leave little streaks of oil on the pan. Then… Artemis, what oils did you buy?"
 
@@ -320,7 +320,9 @@ Alexey just groaned wearily.
 
 <br />
 
-As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem.
+As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem. Tosha, not wanting Sofia to be left out of the food, decided to try spooning the soup over its own reflective surface and mixing it back in, creating a sort of mapo tofu racemate as the soup was exchanged with its reflection. Sofia had to help them at first, as Tosha had never reached through a mirror before, but eventually they were able to handle it on their own. "Next time, I'll do it to the rice while I wash it, too," they said. The entire group ate the racemic mapo tofu, and agreed that while it tasted a little unusual, it had a more complex flavor than the traditional enantiopure version.
+
+Artemis and Tosha were still discussing the potential of opening a Sichuanese restaurant built around this trick when Sofia shooed everyone upstairs, and seated them around the study's desk. She selected a three-volume set from the bookshelves titled _A social history of the Aas Basin_ and unfolded a map from inside the front cover of the first volume.
 
 <br />
 
