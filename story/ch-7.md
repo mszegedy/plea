@@ -360,7 +360,7 @@ Sofia started outlining shapes on the map with her finger, encircling regions th
 
 "There's a few lists, yes," said Sofia. "But I'd rather go over those later. It's less useful to know than you'd think. As for how many, I'd guess… about 240 or so."
 
-Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and as a way of having her back, completed the whistle for her.
+Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and, out of solidarity, completed the whistle for her.
 
 "Yes, we have maybe 10% of all idols in the entirety of Keleykh," said Sofia. "Unlike other factions, our power doesn't come from gods, just idols and mosquitos, for the most part."
 
@@ -376,7 +376,7 @@ Vasilisa attempted to wolf-whistle, and failed. Artemis noticed her attempt, and
 
 "So, that's their thing? They're Keleykh's doctors?" asked Vasilisa, habitually trying to demonstrate that she was still paying attention.
 
-"Well… no," said Sofia. "All but a few are actually fishermen. Fishing is traditionally connected to medicine in Samoyedic culture, and the Tonins were fishermen-shamans before they were doctors. They are the favored faction of the Sea-Mother. They usually take the form of loons, whose beaks can snap up disease spirits out of people like they snap up fish. If you see a loon far from the seashore, that's probably a Tonin spying on us. In fact, there's probably a Tonin spying on us right now. There's at least fifty of them.
+"Well… no," said Sofia. "All but a few are actually fishermen. Fishing is traditionally connected to medicine in Nganasan culture, and the Tonins were fishermen-shamans before they were doctors. They are the favored faction of the Sea-Mother. They usually take the form of loons, whose beaks can snap up disease spirits out of people like they snap up fish. If you see a loon far from the seashore, that's probably a Tonin spying on us. In fact, there's probably a Tonin spying on us right now. There's at least fifty of them, all of them shamans.
 
 "The good news is, they're a lot more self-interested than the Sump or Sibgorprom. They only really care about maintaining power, so if we can offer them a good enough deal, they'll betray the Sump for us. Hopefully."
 
