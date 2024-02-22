@@ -13,7 +13,9 @@ In Berkeley and in Western Siberia live both people I care about and people who 
 
 _Plea to the Moon-Mother_ is supposed to be both scarier and happier than *Pact*. Only time will tell if I accomplished that.
 
-## **CONTENT WARNINGS**
+Mirrored on [AO3](https://archiveofourown.org/works/53975965/) and [Wattpad](https://www.wattpad.com/story/363268488-plea-to-the-moon-mother).
+
+## CONTENT WARNINGS
 - Suicide
 - Self-harm
 - Transphobia
@@ -23,7 +25,7 @@ _Plea to the Moon-Mother_ is supposed to be both scarier and happier than *Pact*
 - Seeing loved ones die
 - Mentions and often portrayals of numerous illnesses of various kinds, including e.g. AIDS, chronic pain, cancer, generalized anxiety disorder
 
-## **CONTENTS**
+## CONTENTS
 ### PART I: Alexey Pankratyevitch Balandin
 
 [Chapter 1](story/ch-1.html)
