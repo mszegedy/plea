@@ -18,7 +18,7 @@ A window of KWord, open to `ryzhaya-notes.kwd`.
 >
 > One hopeful consequence of this, however, is that Alexey is now walking around with memories of essentially nothing but being with the Sump. In trying to create the perfect heiress in Sofia Pankratyevna, did Sofia Nikolaevna also create an antithesis in Alexey? An... anti-heiress? He'd make a hell of an enemy to the Ryzhayas, if only. He'd. Come. Back. Arghh, I have to stop thinking about this. I'll waste all my time fantasizing about bringing Alexey back and getting his help with taking the Ryzhayas down for good. But... I don't know, this whole memory/Sofia thing does change things. I don't know. We'll need more reconnaissance. I'll think about what I can do.
 > 
-> As for the other Ryzhayas, nothing's happened yet. Anna Pankratyevna is still in Petroport with her aunt, and hopefully she stays there. The Konopatovs are still in Abga; I managed to stop the letters that were sent out to them, but someone is bound to call them eventually, not to mention all the supernatural ways the Ryzhayas have of communicating. (Yet another reason to exterminate mosquitos. _Nobody_ will miss them.) The Yagins are still off the grid entirely, but my scout should return in a couple days and we'll know more.
+> As for the other Ryzhayas, nothing's happened yet. Anna Pankratyevna is still in Petroport with her aunt, and hopefully she stays there. The Konopatovs are still in Abga; I managed to stop the letters that were sent out to them, but someone is bound to call them eventually, not to mention all the supernatural ways the Ryzhayas have of communicating. (Yet another reason to exterminate mosquitos. _Nobody_ will miss them.) The Yagins are still off the grid entirely, but Egor should return in a couple days and we'll know more.
 > 
 > I want to end this entry with something pithy, but I'm too tired. I'll just register my unhappiness one more time that things turned out this way with Alexey. I want my friend back.
 
@@ -34,7 +34,9 @@ Sofia looked at him in surprise. "Sure, but I thought you didn't want to talk ab
 
 "I don't. I mean, I've warmed up to the idea a little since I said that, but I'm not gonna go into detail about the stuff I did there. I just wanna cover the basics."
 
-Sofia shrugged, and slouched back in her chair. She gave a look to Alexey that meant, _Alright, I'll trust you._
+Sofia shrugged, and slouched back in her chair. She gave a slight nod to Alexey that meant, _Alright, I'll trust you._
+
+
 
 <br />
 
