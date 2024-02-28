@@ -1,5 +1,5 @@
 ---
-title: Index
+layout: home
 author: Maria Szegedy
 ---
 
