@@ -224,7 +224,7 @@ Vasilisa was running towards her, holding a drum. Artemis idly noted that its pa
 
 "It was on sale." Still softly, waking up from a dream.
 
-"I… I don't think Shchavel House has electricity, Artemis."
+"I… I don't think Shtchavel House has electricity, Artemis."
 
 "I know… I'm sorry." Artemis buried her face in her hands and didn't get up.
 
