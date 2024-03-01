@@ -36,7 +36,13 @@ Sofia looked at him in surprise. "Sure, but I thought you didn't want to talk ab
 
 Sofia shrugged, and slouched back in her chair. She gave a slight nod to Alexey that meant, _Alright, I'll trust you._
 
+All eyes and ears were on Alexey, but he just shifted around in his seat. "Uh... um. How the hell do I even begin. Gimme a moment to get my thoughts all in a row."
 
+His friends waited patiently and encouragingly.
+
+"Okay, so," he began, "I can't speak for, like, their relative political power like Sofia can, 'cause I don't know the other factions all that well. But, she sounded like she was gonna say they're the most powerful, and, I mean... yeah. Keeping in mind my limited perspective... they're _nuts._ In every sense of the word.
+
+"So, God, this requires a bit of background, because the Sump is a cult united around this one really weird specific view of the world. As most cults are, I guess. I dunno, not too familiar. But so like, Russians have been playing around with spirits now for like, twenty, thirty years, right? And they don't bind them the same way us natives do it, they just start with a blank slate and
 
 <br />
 
