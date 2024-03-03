@@ -41,6 +41,8 @@ $on-large:         $on-laptop !default;
   font-size: #{$ratio}rem;
 }
 
+$baseurl: "/plea" !default;
+
 // Import pre-styling-overrides hook and style-partials.
 @import
   "minima/custom-variables", // Hook to override predefined variables.
