@@ -62,13 +62,9 @@ The skylight window panels caved in, and petroleum soot and ash, interspersed wi
 
 "Then along comes Xenia's friend with some nonsense about how the _shoreward half of her shadow soul_ is irrevocably male, or something, and kills herself, and Xenia _buys it_ and _drowns herself in the Furrowed Sea!_ WHO DO YOU THINK SHE GOT HER METAPHYSICS FROM, PYOTR IVANOVICH? _DOES ANY OF THIS SOUND FAMILIAR?_ And Artemis and I are the same way! We have not only our _normal_ doubts, we _then_ have this _insane disease of our reasoning ability_ you have forced upon us! And you, you won't take your own advice and listen to a fucking—"
 
-<div>The blizzard buried them both, ending the nightmare.</div>
-
-<br />
+The blizzard buried them both, ending the nightmare.
 
 ---
-
-<br />
 
 The five kids sat around the small, plain wooden table located in Shtchavel House's kitchen, having breakfast. The actual dining table was only a room away, but everybody felt some sort of paranormal compulsion that if they were to use that table, they would have to put their whole hearts and souls into making sure that the food contained more than two ingredients, and that immediately after the fact the dishes were washed and the tablecloth was laundered, a sort of inherited intergenerational trauma that ensured that nobody would _ever_ feel up to using that room. The two ingredients they had settled on for the day were rice and fermented red bean curd, brought from the matchbox house. Sofia had watched Artemis pack it into the trunk, explaining that it's cheap, keeps well, is easy to make, and has a texture that nobody in their household finds especially objectionable. This was memorable to Sofia, because it was both her first and currently the longest conversation she'd had with Artemis, despite being twenty seconds of small talk made while packing as fast as possible.
 
@@ -108,13 +104,9 @@ Of course Pyotr Lykov would be able to read the mind of a dreamer. Sofia swore h
 
 The abomination hunting her friends appeared behind Sofia. She had just turned to look at it—glimpsing a vaguely human torso with a hard-to-count number of many-jointed hydraulic limbs, no head, and a trademark sheen of creosote—when it everted its stomach through its abdomen and swallowed her whole.
 
-<div>Pyotr shrugged.</div>
-
-<br />
+Pyotr shrugged.
 
 ---
-
-<br />
 
 Artemis was the first to awaken, somewhat uncharacteristically late for her, an hour before noon. She decided to take a stab at lighting the other three hearths herself; she'd apologize to Sofia later, in a warm house. A part of her was worried that Sofia would turn it into a reason to feel bad about herself, feeling like she'd let everyone down by going to sleep, but Artemis reasoned that even so, stoking the hearths as soon as possible was the healthiest course of action in multiple respects.
 
@@ -198,13 +190,9 @@ Vasilisa looked crestfallen. "…whatever. Let's just go then."
 
 "I kind of just want to wait for her and Alexey to get up on their own, so they can tell us. Is that okay?" said Artemis.
 
-<div>Both Tosha and Vasilisa nodded.</div>
-
-<br />
+Both Tosha and Vasilisa nodded.
 
 ---
-
-<br />
 
 "Look, I admire your courage, I do, but this is a terrible idea," said Sofia. "Artemis, you were part of the Sump, weren't you? We haven't talked about it much, but I heard how Nikolay Nikolaevitch talked to you. They know what you look like, and they are looking for you. Not to mention how incredibly loud your car is."
 

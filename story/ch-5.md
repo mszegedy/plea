@@ -12,13 +12,9 @@ Before Artemis had left, she had anointed both idols with her blood. "It's not n
 
 Artemis stopped at an intersection and looked at the signage, frustrated. She couldn't remember where this intersection was located on Republic Street relative to the store, and resented it. She felt small, afraid, and like a failure. "A little fear is good," Sofia had told her. "That's the idol working. You have to let it work. Embrace its effect. Otherwise you can't use it."
 
-<div>She picked a direction and kept pushing.</div>
-
-<br />
+She picked a direction and kept pushing.
 
 ---
-
-<br />
 
 An hour ago, Sofia was explaining the basics of disease spirit idols to Artemis and Vasilisa.
 
@@ -54,13 +50,9 @@ Artemis felt that this wasn't giving her ethics and kind nature enough credit, b
 
 "You coming?" asked Vasilisa.
 
-<div>"Uh… yeah. Coming."</div>
-
-<br />
+"Uh… yeah. Coming."
 
 ---
-
-<br />
 
 Artemis did not know what the crowds looked like to an onlooker. Supposedly she was hidden in them without there being any visible sign she was using an idol. Was she just easy to glance over? Or actually invisible?
 
@@ -92,13 +84,9 @@ She frantically rooted around in the inside pockets of her coat and found a page
 
 The cashier stared at her.
 
-<div>"Sir… this is the bakery. The pharmacy is next door."</div>
-
-<br />
+"Sir… this is the bakery. The pharmacy is next door."
 
 ---
-
-<br />
 
 Meanwhile, Vasilisa was poking around in the Shchavel House study, eyeing works such as a small sheaf of papers stapled together titled "Unicorn, Mammoth, Whale: mythological and etymological connections of zoonyms in North and East Asia" in English, by one Juha Janhunen, or a leather-bound volume of yellowed pages with a glossy inset, titled _The Dubrovka collection: Northern spirits writ in birchbark_, by Yuvan Shestalov.
 
@@ -184,13 +172,9 @@ Vasilisa grew a little concerned. "Is there, like, a book here on what spirits c
 
 Sofia considered for several long seconds. "Well… how about this: read _Metamorphoses,_ okay? Then, if you have any questions about how spirits work, come to me and I'll try to answer them. I wouldn't have sent Artemis out there with those spirits if I didn't think it was safe. And I think she's probably doing perfectly fine right now. After all, she seems to me a very strong person, and the anxiety spirit she's carrying isn't very harmful. And if anything does go wrong, don't forget, the mosquitos will tell us."
 
-<div>Vasilisa nodded hesitantly.</div>
-
-<br />
+Vasilisa nodded hesitantly.
 
 ---
-
-<br />
 
 Through great effort, Artemis eventually managed to correctly locate the pharmacy, and retrieve every item on her list of medications. She was unreasonably relieved because of this, and had grown slightly more tolerant of the crowd. She no longer had to worry about being asked to present a prescription, or the pharmacy being out of something she or one of her friends needed to live. Now all she needed to do was go buy some kitchen supplies and bulk groceries at Eurosmak, and who had ever heard of a wholesale warehouse store being out of rice?
 
@@ -200,23 +184,15 @@ In fact, the manager knew Artemis very well, as she'd been making food runs for 
 
 As a result of the Sump's mandate, he currently sat on a stool a ways behind the cash desk, watching each customer in turn as they interacted with the lone cashier. He could have done the job himself, but the cashier was already here, so why bother? He enjoyed watching each person, imagining what they might be making with the food they bought, and what their life might be like based on the clothes they wore. The lady he was watching wore a luxurious brown mink stole, and was buying large quantities of salmon roe, fresh fish, and seaweed, in addition to a bottle of soy sauce. A socialite, planning a Japanese-themed dinner, maybe? They would need rice for it, but perhaps they already had that at home.
 
-<div>The next customer… he frowned. The next customer was wearing black leather, and definitely had dark hair, but they were mostly blocked from view by the cashier. He craned his neck a little to see, but the customer was shifting around nervously, seemingly shrinking as they stammered something or other to the cashier. The manager hopped off his stool to get a better look, but just at that moment, the customer dropped some of their coins on the floor, and bent down to pick them up, hiding themselves from view entirely. Not wanting to be caught staring at a customer, the manager sat back onto his stool. By the time he focussed his attention back on the counter, the customer had already gone.</div>
-
-<br />
+The next customer… he frowned. The next customer was wearing black leather, and definitely had dark hair, but they were mostly blocked from view by the cashier. He craned his neck a little to see, but the customer was shifting around nervously, seemingly shrinking as they stammered something or other to the cashier. The manager hopped off his stool to get a better look, but just at that moment, the customer dropped some of their coins on the floor, and bent down to pick them up, hiding themselves from view entirely. Not wanting to be caught staring at a customer, the manager sat back onto his stool. By the time he focussed his attention back on the counter, the customer had already gone.
 
 ---
-
-<br />
 
 Artemis hauled a bag of rice out the doorway of Eurosmak in two outstretched arms, a number of other basic products perched on top of it, including a heavy, rectangular Chinese vegetable knife for good measure. Her heart was pounding, but she was buoyed by the fact that she had successfully gotten everything she needed without any major obstacles, and was on the quickest and simplest way home, back up Republic Street, with only a single final left turn to bring her to Shtchavel House. She only needed to keep going forward.
 
-<div>She strode forth confidently, directly into a woman who was, by all appearances, very real.</div>
-
-<br />
+She strode forth confidently, directly into a woman who was, by all appearances, very real.
 
 ---
-
-<br />
 
 "Hey, Sofia?" asked Vasilisa. She'd come downstairs from the study to find Alexey, Tosha, and Sofia huddled around the fire together, making small talk.
 
@@ -230,13 +206,9 @@ Artemis hauled a bag of rice out the doorway of Eurosmak in two outstretched arm
 
 "You get someone else to help you with it."
 
-<div>"Oh."</div>
-
-<br />
+"Oh."
 
 ---
-
-<br />
 
 Artemis sat on the curb, trying very hard but failing to catch her breath. Her face was buried in her arms, so that none would see it. She wanted to disappear, she wanted to not be perceived, she wanted to not exist. Not like this. She thought about every flaw in her presentation, every bit of her that was coded more masculine than feminine. Individual little protrusions of bone and cartilage, third-decimal-place deviations in her body measurements, a lack of makeup or traditionally feminine clothing, every breath she took that flowed past a larynx which wasn't shaped right… it was all on the table and it was all made of things she desperately didn't want to expose to the world right now. Maybe if she just sat here long enough, all the people would go away and nobody would have to see her and then she'd go home…
 

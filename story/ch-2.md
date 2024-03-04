@@ -36,13 +36,9 @@ Sofia struggled to come up with a summary for what she saw as an infinitely comp
 
 Tosha rubbed his eyes. "Can you help me pack? Never packed on my own before." It then occurred to them that they were, in fact, not comfortable letting a stranger near their belongings. "Never mind. Please just get one of my friends for me. To help."
 
-<div>Sofia nodded. "On it."</div>
-
-<br />
+Sofia nodded. "On it."
 
 ---
-
-<br />
 
 Meanwhile, a newly dried and clothed Alexey barged into Artemis's room.
 
@@ -80,13 +76,9 @@ Artemis knew just enough about shamans, magic, and the reputation of the Ryzhaya
 
 "Actually, my sister's already on that."
 
-<div>Then the yelling started.</div>
-
-<br />
+Then the yelling started.
 
 ---
-
-<br />
 
 Emboldened by how smoothly her first cold call had gone, Sofia went to go knock on the door to Vasilisa's room, forgetting her urgency for a moment as she replayed the successful social interaction in her head and imagined how this new one might go.
 
@@ -122,13 +114,9 @@ There was a short silence.
 
 "Okay."
 
-<div>"Okay, hold on, I need to go check on Tosha. He needs help, too."</div>
-
-<br />
+"Okay, hold on, I need to go check on Tosha. He needs help, too."
 
 ---
-
-<br />
 
 Sofia bumped into Alexey and Artemis on the way back.
 
@@ -148,13 +136,9 @@ Sofia bumped into Alexey and Artemis on the way back.
 
 The two of them departed in opposite ways, leaving Sofia to awkwardly shuffle over to the common area. She decided to prepare the storm kettle for transportation while she waited.
 
-<div>A muffled voice came from the bathroom. "Oh my <i>god!</i>"</div>
-
-<br />
+A muffled voice came from the bathroom. "Oh my _god!_"
 
 ---
-
-<br />
 
 "Deer."
 

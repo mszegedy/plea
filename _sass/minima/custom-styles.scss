@@ -13,3 +13,13 @@
     height: 1cm;
     background-image: url($baseurl + "/assets/border.svg");
 }
+
+.magic {
+    padding-left: $spacing-unit * .3;
+    padding-right: $spacing-unit * .3;
+    @include relative-font-size(1.1);
+    color: $site-title-color;
+    background: $site-title-bg;
+    background-clip: text;
+    -webkit-background-clip: text;
+}

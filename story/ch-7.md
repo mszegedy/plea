@@ -34,15 +34,11 @@ Sofia, face red, nodded and wiped her nose. She broke into sobs as Alexey slippe
 
 Sofia choked on a sob. "It…" she whispered, as Alexey released her from the hug, "It was so, so much worse. Once she had nothing left to lose. I… I-I didn't want her to die, so I had to keep talking to her, or-or keep her talking, and it was like this new, horrible kind of argument where I couldn't win because it all came back to how nobody loved or appreciated her and how she was worthless… I don't know, Alexey. Did I kill her? She got so _sloppy_ in the last few months. Going out without her drum. Then without even an idol. That last day… yesterday… she went out with _nothing._ She still wanted to die. I never could convince her she was loved. I tried really, really hard to love her, but—"
 
-"Sofia, that's not your responsibility!" exclaimed Alexey, so suddenly and loudly that Sofia reflexively jumped back. Alexey felt guilty for this, as he'd been trying his best to control his tone and volume, but he couldn't help it. "I mean, God, did nobody tell you? Someone told you, right? When… okay, sorry, I'll stop asking questions and just tell you what happened to me: the first time my mother tried to kill herself was when I was eight years old. Do you think an eight-year-old can… I dunno, Sofia, did you _ask_ for this responsibility? Did you ever have a _choice?_ Never mind that an eight-year-old should never, ever have to deal with _anything_ like that. I said I'd stop asking questions, so let me answer for you: she never gave you a choice, and she never should have dumped her problems on a little girl. _Obviously._ I'm, I'm genuinely asking now, though, sorry, but, you _know_ none of this is your fault, right? Please tell me you had, I dunno, some friend, or some… I dunno, literally anyone else, someone sane, who could tell you it's not… Sofia?"
+"Sofia, that's not your responsibility!" exclaimed Alexey, so suddenly and loudly that Sofia reflexively jumped back. Alexey felt guilty for this, as he'd been trying his best to control his tone and volume, but he couldn't help it. "I mean, god, did nobody tell you? Someone told you, right? When… okay, sorry, I'll stop asking questions and just tell you what happened to me: the first time my mother tried to kill herself was when I was eight years old. Do you think an eight-year-old can… I dunno, Sofia, did you _ask_ for this responsibility? Did you ever have a _choice?_ Never mind that an eight-year-old should never, ever have to deal with _anything_ like that. I said I'd stop asking questions, so let me answer for you: she never gave you a choice, and she never should have dumped her problems on a little girl. _Obviously._ I'm, I'm genuinely asking now, though, sorry, but, you _know_ none of this is your fault, right? Please tell me you had, I dunno, some friend, or some… I dunno, literally anyone else, someone sane, who could tell you it's not… Sofia?"
 
-<div>By way of answering, Sofia only cried.</div>
-
-<br />
+By way of answering, Sofia only cried.
 
 ---
-
-<br />
 
 "Garlic, ginger. Sichuan pepper," said Tosha, addressing the ingredients on the cutting board and in a small bowl in front of him. "Smashed and peeled the garlic. Peeled the ginger. Don't have to do anything to the pepper. Now I dice." Having already sharpened the knife, Tosha started cutting the garlic and ginger.
 
@@ -78,13 +74,9 @@ His companions waited patiently as he obtained a large cast-iron wok from a high
 
 "Should I start making rice?" asked Vasilisa. Tosha had a strange habit of forgetting the rice.
 
-<div>"Oh, yeah, sorry," said Tosha. "Please do. Should have started already."</div>
-
-<br />
+"Oh, yeah, sorry," said Tosha. "Please do. Should have started already."
 
 ---
-
-<br />
 
 "…and my first suicide attempt was when I was _nine,_" said Sofia. "Just a year later. So, yes, of course there was a connection."
 
@@ -122,13 +114,9 @@ Sofia crossed her arms and glared. "You think I don't know that?"
 
 "So then—"
 
-<div>"<i>But,</i>" insisted Sofia, "Who else do you expect me to become?"</div>
-
-<br />
+"_But,_" insisted Sofia, "Who else do you expect me to become?"
 
 ---
-
-<br />
 
 "Now we can add it to the wok," said Tosha, gesturing at a mound of tofu he'd just cut into large cubes while the aromatics and dòubànjiàng fried. "You're supposed to blanch the tofu first, to firm it up and get rid of the aftertaste, but, at the matchbox house we only had one stove, and I kind of like the aftertaste anyway, so I don't do that part."
 
@@ -154,13 +142,9 @@ Tosha chose this moment to join Artemis at the table. "Everything is done," they
 
 "And until the rice is done," reminded Vasilisa.
 
-<div>"And until the rice is done," agreed Tosha.</div>
-
-<br />
+"And until the rice is done," agreed Tosha.
 
 ---
-
-<br />
 
 "It should _never_ be your first resort." Alexey was presently formulating a lecture on the subject of hurtful speech, and struggling to phrase it in a way that Sofia might understand. "It was for Mom. But she was wrong, understand? She didn't achieve _anything_ good by belittling you and making up fake diseases. She just hurt you, and she hurt me, and now she's dead and we both have awful memories of her. That isn't… she didn't achieve her goals."
 
@@ -178,7 +162,7 @@ Sofia had nothing to say to that.
 
 "How exactly," said Sofia through gritted teeth, "Am I supposed to keep her 'happy' when she makes a mistake that both weakens us and nearly kills both her and Artemis?"
 
-"By reassuring her that you aren't mad at her! And that you're glad she made it out okay!" Alexey wasn't angry or trying to yell; if anything, he was enthusiastic that Sofia was finally asking the right questions. "You can be firm when you warn her to never make that mistake again, sure. That's a normal thing to do. Just don't try to make her feel bad about it. You can help her not make the mistake again by, I dunno, explaining to her why it was a mistake, or reminding her next time she might make it, or, I dunno, any number of things! But for God's sake, Sofia, don't _hurt_ her over it. She's hurt enough as it is. Save that for… Pyotr Lykov, or something. For your enemies."
+"By reassuring her that you aren't mad at her! And that you're glad she made it out okay!" Alexey wasn't angry or trying to yell; if anything, he was enthusiastic that Sofia was finally asking the right questions. "You can be firm when you warn her to never make that mistake again, sure. That's a normal thing to do. Just don't try to make her feel bad about it. You can help her not make the mistake again by, I dunno, explaining to her why it was a mistake, or reminding her next time she might make it, or, I dunno, any number of things! But for god's sake, Sofia, don't _hurt_ her over it. She's hurt enough as it is. Save that for… Pyotr Lykov, or something. For your enemies."
 
 "What if," said Sofia slowly, "_I_ feel bad about it? And I want her to understand how badly she hurt _me?_"
 
@@ -196,13 +180,9 @@ The twins were silent for a while, uneasy.
 
 The silence stretched longer.
 
-<div>Sofia replied, "Good."</div>
-
-<br />
+Sofia replied, "Good."
 
 ---
-
-<br />
 
 Alexey and Sofia entered the kitchen to find their friends seated around the kitchen table. Tosha was resting their head on it, nestled in their arms, while Artemis and Vasilisa were having some incomprehensible argument.
 
@@ -310,13 +290,9 @@ Alexey just groaned wearily.
 
 "If it helps, the mapo tofu smells good," said Sofia.
 
-<div>"That helps," agreed Artemis.</div>
-
-<br />
+"That helps," agreed Artemis.
 
 ---
-
-<br />
 
 As it turned out, the caraway Artemis had bought smelled and tasted like mint to Sofia, which posed a problem. Tosha, not wanting Sofia to be left out of the food, decided to try spooning the soup over its own reflective surface and mixing it back in, creating a sort of mapo tofu racemate as the soup was exchanged with its reflection. Sofia had to help them at first, as Tosha had never reached through a mirror before, but eventually they were able to handle it on their own. "Next time, I'll do it to the rice while I wash it, too," they said. Initially, Artemis objected that this may not be safe to eat, but Alexey drew her away into an argument about nutritional disorders while Tosha served the food. Eventually, everyone ate some, and agreed that while it tasted a little unusual, it had a more complex flavor than the traditional enantiopure version, and most certainly didn't seem poisonous.
 

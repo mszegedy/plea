@@ -28,13 +28,9 @@ Vasilisa, already halfway to the stairs with Alexey, swivelled to face her. "We 
 
 "Shamanize," replied Vasilisa simply, in a tone that carried an implicit, "Duh."
 
-<div>She and Alexey disappeared up the staircase.</div>
-
-<br />
+She and Alexey disappeared up the staircase.
 
 ---
-
-<br />
 
 "You're not going to try to come with me, are you?" asked Vasilisa of Alexey, once they were in the master bedroom.
 
@@ -122,13 +118,9 @@ Vasilisa sensed that Alexey was making an effort to be more vulnerable than usua
 
 Alexey nodded, and the two embraced tightly, heads over each other's shoulders. Vasilisa wasn't seriously expecting to die on her excursion, but she thought that just in case she did, she definitely wanted to hug both Alexey and Tosha first. And thank Sofia for all the help. _One bucket list item down, two to go,_ she thought. _Guess if you're about to die your bucket list's gotta be modest._
 
-<div>They went back downstairs.</div>
-
-<br />
+They went back downstairs.
 
 ---
-
-<br />
 
 "…not jellyfish, but it tastes the same and feels the same," Tosha was explaining to Sofia when the pair returned. "Or well it doesn't have much of a taste. But either way."
 
@@ -186,13 +178,9 @@ Vasilisa nodded. "Thanks. Thanks for, like, helping out, and being a generally c
 
 Sofia groaned. She understood exactly why she was hearing this. "Just get her and come back! You'll be _fine._"
 
-<div>Vasilisa smiled, buttoned her puffy butter-colored parka, and gave a mock salute before disappearing out the door.</div>
-
-<br />
+Vasilisa smiled, buttoned her puffy butter-colored parka, and gave a mock salute before disappearing out the door.
 
 ---
-
-<br />
 
 > A daughter [of mine] won't ask only for the favor of gods. She will ask for the favor of the sick.
 
@@ -254,11 +242,7 @@ The idol didn't react. "Um. Vasilisa," said Artemis shakily. "Don't taunt the di
 
 <div>A screech akin to a braking train filled the air, heard for kilometers.</div>
 
-<br />
-
 ---
-
-<br />
 
 "No, what? Smoking them is, like, the dumbest possible thing you can do," said Alexey. "There's literally no benefit to it.
 
@@ -300,13 +284,9 @@ This immediately inspired Alexey, ever the pathological pessimist, to begin cont
 
 "Do Artemis and Vasilisa _know_ they should run away?" asked Alexey.
 
-<div>"Well," replied Sofia darkly, "If they didn't know it yet, they're going to find it out very, very quickly."</div>
-
-<br />
+"Well," replied Sofia darkly, "If they didn't know it yet, they're going to find it out very, very quickly."
 
 ---
-
-<br />
 
 Vasilisa had never noticed until now, but the roadside slush seemed to have a rainbow sheen to it. And it only just now became clear that the red of the sunset wasn't caused by the sun; it was an array of distant oil wells, lit by---
 
@@ -318,7 +298,7 @@ She understood that this was her fault. The spirit was angry at her, and it was 
 
 The last thing Vasilisa wanted to do right now was cold-call a god, but there was nothing else left to do but what she came for. She shut her eyes tight in a grimace, regretting how much it hurt, and began to beat her drum. Her words were barely more than a whisper. The spirit, momentarily stymied by the drum's sound, listened.
 
-<p style="font-variant: small-caps">"Moon-Mother, please, i-it's me, Vasilisa. I'm a friend of Alexey's. I came here to help his friend Artemis, but I screwed up real, real bad. I totally fucked it up, I'm so sorry. I released this disease spirit, and, I think it's trying to give me a heart attack, or something… can you please help me? I totally don't deserve it, but like, I really wanted to help, I was just really bad at it. I dunno, could you maybe like, help me bind it again? I'm sorry, it's a lot to ask and I don't have any reindeer to sacrifice to you, but I promise I'll… uh… I'll ask Alexey for help with the sacrifice part, okay? I just need to live through this. Sorry again."</p>
+<p class="magic">"Moon-Mother, please, i-it's me, Vasilisa. I'm a friend of Alexey's. I came here to help his friend Artemis, but I screwed up real, real bad. I totally fucked it up, I'm so sorry. I released this disease spirit, and, I think it's trying to give me a heart attack, or something… can you please help me? I totally don't deserve it, but like, I really wanted to help, I was just really bad at it. I dunno, could you maybe like, help me bind it again? I'm sorry, it's a lot to ask and I don't have any reindeer to sacrifice to you, but I promise I'll… uh… I'll ask Alexey for help with the sacrifice part, okay? I just need to live through this. Sorry again."</p>
 
 It was then that she noticed that, in the hand that she was holding the drum, she was also holding a white styrofoam cup full of hot tea. Vasilisa hadn't had the occasion to handle styrofoam much in her life, and nearly dropped it out of surprise. Had she absentmindedly made herself tea at Shchavel House and brought it here, all the while failing to either drink from or spill it? Such feats were improbable, but not beyond her. Or was it a gift from…?
 
@@ -356,13 +336,9 @@ She had a flash of inspiration, and placed the cup on the ground. "Oh, right, yo
 
 "…nice," said Artemis, who felt that she couldn't just leave the incident without comment, but had nothing to actually say. Vasilisa picked up the cup by its rim, trying not to hurt her hand. The entity inside it started looking less like a hedgehog, and more like an ordinary pile of broken glass. She blinked. The glass was, indeed, no longer stuck in her eyes.
 
-<div>The girls picked up the groceries and walked home.</div>
-
-<br />
+The girls picked up the groceries and walked home.
 
 ---
-
-<br />
 
 "Vasilisa. Tell me honestly. Are you mentally disabled?" asked Sofia.
 

@@ -2,7 +2,7 @@
 title: Chapter 1
 ---
 
-<div style="font-variant: small-caps">
+<div class="magic">
 Moon-Mother, please take my soul. <br />
 It is scratched. It is worthless. <br />
 It is all I have to give you. <br />
@@ -19,11 +19,7 @@ So please. I will give you my soul now. <br />
 I want to trade.
 </div>
 
-<br />
-
 ---
-
-<br />
 
 But though her gaze was fixed that night on the matchbox house in the hills of Keleykh, though she could not possibly have misheard his desperate entreaty, the new year found him in a hospital bed, rather than the Moon-Mother's frozen embrace. His sleeves had been cut away with fabric scissors and replaced with gauze, but the rest of his clothing remained intact, soaked through with at least three individual strata of bloodstains. Where his skin wasn't stained yellow with iodine, or caked with dry blood, or broken by new scar tissue and sutures, it was nearly translucent quartz sand, detailed with even starker white criss-crosses. His jeans, out of great sympathy for his skin, were in a similar condition, but his oversized hoodie remained far more loyal to its job of hiding everything and anything at all interesting about him in a sea of black, even despite its newly sleeveless nature.
 
@@ -127,13 +123,9 @@ He yelped.
 
 "Sorry! I didn't mean to startle you. Alexey Pankratyevitch, would you mind if I took your vitals?"
 
-<div>It was the nurse from before. He relaxed, and rubbed his forehead. Then he noticed his hands had several new mosquito bites on them. He scratched at them a little. He really wanted to get out of here.</div>
-
-<br />
+It was the nurse from before. He relaxed, and rubbed his forehead. Then he noticed his hands had several new mosquito bites on them. He scratched at them a little. He really wanted to get out of here.
 
 ---
-
-<br />
 
 As it turned out, the hospital had the same idea. They were ill-equipped to treat or refer mental health issues, the nearest asylum in the neighboring locality of Dubrovka having been defunct for the past decade or so, so all they could do was make sure Alexey's wounds were treated. Once he managed to get himself ejected to the crowded waiting area, Alexey borrowed some time on a faux-wood Bakelite wall telephone, heavily scuffed despite having been installed only months ago. As he fingered the rotary dial with the matchbox house's number, he thought about how he should break the news to his friends. _There may be no news to break. She doesn't seriously intend for me to receive the inheritance… does she? I should get this in writing. I want to see that will. Even if she's not dying soon, my family would take interest in me._ He began to wonder if confusing him and setting his family against him _was_ his mother's plan.
 
@@ -197,13 +189,9 @@ Artemis bit her lip. Alexey was veering into letting his self-hatred do the talk
 
 "Well, and, you're alive. So what does that tell you?"
 
-<div>Alexey was silent for a bit. Then he got out of the car.</div>
-
-<br />
+Alexey was silent for a bit. Then he got out of the car.
 
 ---
-
-<br />
 
 Alexey and company's matchbox house contained a slightly smaller matchbox for the bedrooms and bathroom, and a narrow L-shaped hallway around the seam that served as a combined living area and kitchen. Squeezing past alternately burning and defunct copper radiators was a daily exercise for its inhabitants, and its main imports were large quantities of rice, and smaller quantities of fermented bean products to eat it with. The "kitchen" was a corner of the common area taken up by a cast iron storm kettle, detailed to resemble a vase tunicate, a stack of sooty cookware to its left, a bag of coal and a box of matches to its right.
 
@@ -231,21 +219,13 @@ Alexey cracked a smile for the first time since waking up. While it would have o
 
 "Reindeer tripe," replied Artemis and Vasilisa simultaneously.
 
-<div>Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shtchavel House. <i>Fuck that stupid will,</i> he thought. <i>I'm not part of your game anymore, mother. You have no power over me. I am</i> never <i>coming back.</i></div>
-
-<br />
+Alexey maintained the smile. He felt more at home than he could possibly have felt in the frozen afterlife, and even more so than he ever did at Shtchavel House. _Fuck that stupid will,_ he thought. _I'm not part of your game anymore, mother. You have no power over me. I am_ never _coming back._
 
 ---
 
-<br />
-
-<div>The snow melted. The mosquitos came. And when they left again, a woman left with them.</div>
-
-<br />
+The snow melted. The mosquitos came. And when they left again, a woman left with them.
 
 ---
-
-<br />
 
 A night in late October, Alexey was having a nightmare. He had nightmares every night, but this night there was a new tool in his mind's shed of torture instruments: a girl his age and build, with auburn Ryzhaya hair instead of his usual black.
 
