@@ -54,7 +54,7 @@ Sofia raised an eyebrow.
 
 Sofia shrugged. "I think it's more about acceptance than power. But yes, I don't see why he expects them to have his goals."
 
-"Well, okay, this is a good opportunity to get back on topic," said Alexey. "Because you sorta hit on the central problem with the Sump. Everyone in the Sump gets told, by Pyotr Ivanovitch himself, that they're _personally_ responsible for saving the whole damn world. We—_they_ get told that the only way to be a hero, or a good person, or anyone worth anything, is to make everyone and everything their responsibility, because if they don't, everyone will die, and that's murder. You know, I once heard a proverb:"
+"Well, okay, this is a good opportunity to get back on topic," said Alexey. "Because you sorta hit on the central problem with the Sump. Everyone in the Sump gets told, by Pyotr Ivanovitch himself, that they're _personally_ responsible for saving the whole damn world. We—_they_ get told that the only way to be a hero, or a good person, or anyone worth anything, is to make everyone and everything their responsibility. Because if they don't, everyone will die, and that's murder. And, well… y'know, I once heard a proverb:"
 
 "'You can't burn yourself to keep someone else warm,'" recited Artemis, interrupting Alexey. She felt deeply connected to him through how much meaning this thought held to her, and she couldn't help but express it. Alexey only nodded.
 
