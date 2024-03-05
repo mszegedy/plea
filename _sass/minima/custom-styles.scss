@@ -14,6 +14,17 @@
     background-image: url($baseurl + "/assets/border.svg");
 }
 
+.emphatic-quote {
+    background: transparent;
+    color: $brand-color;
+    @include relative-font-size(1.125);
+    font-style: italic;
+
+    i, em {
+        font-style: normal;
+    }
+}
+
 .quote-subtitle {
     @include relative-font-size(1.1);
     color: $brand-color-dark;

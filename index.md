@@ -3,7 +3,7 @@ layout: home
 author: Maria Szegedy
 ---
 
-> Plea to the Moon-Mother is about a small group of queer people living in a world that melts Siberian folklore into the choking mundanity of surviving deep in Russia's periphery.
+<blockquote class="emphatic-quote">Plea to the Moon-Mother is about a small group of queer people living in a world that melts Siberian folklore into the choking mundanity of surviving deep in Russia's periphery.</blockquote>
 
 <p class="quote-subtitle">— Thalber Mitaclau, my friend</p>
 

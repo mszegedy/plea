@@ -104,7 +104,7 @@ Meanwhile, Vasilisa was poking around in the Shchavel House study, eyeing works 
 
 "Not really."
 
-"Good. Anyway, so, Ryzhaya's words (or I think she was called Marsymyaku) were originally sung in really archaic Nganasan, but this version has translations and annotations in Old Komi by her great-granddaughter H"andula"amyaku, so you should get out the translators for both… shoot, I never explained this, but we have spirits we trained to translate stuff, I'll show you. I think it was H"andula"amyaku's idea to call it _Metamorphoses_, by the way. I'm not sure she knew that that was already a thing."
+"Good. Anyway, so, Ryzhaya's words (or I think she was called Marsymyaku) were originally sung in really archaic Nganasan, but this version has translations and annotations in Old Komi by her great-granddaughter H”andula”amyaku, so you should get out the translators for both… shoot, I never explained this, but we have spirits we trained to translate stuff, I'll show you. I think it was H”andula”amyaku's idea to call it _Metamorphoses_, by the way. I'm not sure she knew that that was already a thing."
 
 "Okay. Um. Why is it called _Metamorphoses_ if there's nothing about shapeshifting in it?"
 
