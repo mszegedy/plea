@@ -6,7 +6,7 @@ title: Chapter 6
 
 > A shaman needs a drum, so that the gods can hear them. And a daughter of mine needs a knife too, to feed the spirits [with blood]. It [the knife] can also contain a spirit.
 
-— _Metamorphoses_ by Marsymyaku (ed H"andula"amyaku)
+<p class="quote-subtitle">— _Metamorphoses_ by Marsymyaku (ed H"andula"amyaku)</p>
 
 "Sofia, do you have any spare knives? Preferably ones that are also idols," said Vasilisa.
 
@@ -184,7 +184,7 @@ Vasilisa smiled, buttoned her puffy butter-colored parka, and gave a mock salute
 
 > A daughter [of mine] won't ask only for the favor of gods. She will ask for the favor of the sick.
 
-— _Metamorphoses_ by Marsymyaku (ed H"andula"amyaku)
+<p class="quote-subtitle">— _Metamorphoses_ by Marsymyaku (ed H"andula"amyaku)</p>
 
 Slipped away. Artemis had slipped away out of the world, like she'd wanted to. She was floating in darkness. The darkness tasted like crude oil.
 
@@ -240,7 +240,7 @@ The idol didn't react. "Um. Vasilisa," said Artemis shakily. "Don't taunt the di
 
 "…okay," said Artemis. "Okay, thanks, Vasilisa, I do feel—"
 
-<div>A screech akin to a braking train filled the air, heard for kilometers.</div>
+A screech akin to a braking train filled the air, heard for kilometers.
 
 ---
 

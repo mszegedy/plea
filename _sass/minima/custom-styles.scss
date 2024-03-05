@@ -14,6 +14,11 @@
     background-image: url($baseurl + "/assets/border.svg");
 }
 
+.quote-subtitle {
+    @include relative-font-size(1.1);
+    color: $brand-color-dark;
+}
+
 .magic {
     padding-left: $spacing-unit * .3;
     padding-right: $spacing-unit * .3;

@@ -5,7 +5,7 @@ author: Maria Szegedy
 
 > Plea to the Moon-Mother is about a small group of queer people living in a world that melts Siberian folklore into the choking mundanity of surviving deep in Russia's periphery.
 
-— Thalber Mitaclau, my friend
+<p class="quote-subtitle">— Thalber Mitaclau, my friend</p>
 
 I was inspired by [*Pact*](https://pactwebserial.wordpress.com/) by John C. McCrae (aka Wildbow). I wish it did some things differently and I have issues with McCrae as an author, but there are valuable concepts in the story. I am therefore writing an adaptation. 
 
