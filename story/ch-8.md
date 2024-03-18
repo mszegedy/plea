@@ -114,7 +114,7 @@ Katya fixed an intense glare on Pyotr. "Because you're a _man._ It's exactly wha
 
 "Those two are one and the same," replied Katya casually. "You can't separate transness out of someone's identity. It's like separating the hydrogens out of water. If you do, it's just not water anymore."
 
-Pyotr didn't reply. He felt that if Katya kept talking, she might finally naturally meander from here back to the topic he'd asked for.
+Pyotr didn't reply. He felt that if Katya kept talking, she might finally naturally meander from here onto the topic he'd asked for.
 
 <br />
 
