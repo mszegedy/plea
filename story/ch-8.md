@@ -56,6 +56,46 @@ Katya Konstantinovna Narodova sat in her office at the Sump, poring over last we
 
 The main reason that the schedule needed to be done urgently was that there were four interviews scheduled for next week, for new members. Sump interviews were almost always group affairs, conducted in joint by Pyotr, Katya, and sometimes a stenographer, when Katya was too busy to take notes. Pyotr would want to be informed about the finalized interview times as soon as possible; the interviews were possibly his favorite activity. It warmed Katya's heart to see how happy it made him to meet new people, and she somewhat regretted her role as the "bad cop" in their good cop-bad cop interview routine. Nevertheless, she did not feel capable at all of projecting even a twentieth of the warmth that Pyotr did. If nothing else, she felt far too tired and beaten. Her cynicism was not an act.
 
+Knocks came from her door. "Come in," said Katya.
+
+It was Pyotr.
+
+"Hey," he said. "Do you have time to discuss the Alexey situation?"
+
+A new crease was added to Katya's brow. "Uh… Alexey Pankratyevitch?"
+
+Pyotr nodded.
+
+"Yeah," said Katya, dreading everything that was about to come next. "What do you need?"
+
+"I need insight into his friend ▓▒▓▓▓▓▒," said Pyotr. "You're aware they've escaped to Shtchavel House together, right?"
+
+"…Shtchavel House?"
+
+"The Ryzhaya residence."
+
+"Right, well," said Katya, "I was never on the best terms with ▓▒▓▓▓▓▒. I mean, we had a few friendly chats, sure, but once he made friends with ▓▒▓▒░▒▓, he was turned against me almost immediately. Not that he didn't keep trying to talk to me. I don't know why he bothered." She sounded bitter.
+
+"Well… do you at least happen to remember what name ▓▒▓▓▓▓▒ is going by?"
+
+"Artemis," said Katya. "And he's not using his patronymic, or his real surname. Not that he did when he was here, either." She looked Pyotr in the eyes, stern. "You didn't need to ask me for that. I passed down as much identifying information about him as I could to our scouts yesterday. He's possibly the most distinct individual in all of Keleykh."
+
+"I'm not really here for his name," said Pyotr. "I want to know more about his _identity._ The name was just a segue."
+
+"His identity? Do you want me to… to fucking explain transsexuality to you again, or what?" They had gotten to the part of the conversation that Katya had desperately hoped to avoid.
+
+"Look, Katya," said Pyotr. "If I'm to fight Alexey, I'll be fighting his friends, too. And I know ▓▒▓▓▓▓▒… or, er, 'Artemis', is his closest friend. You knew her, and I didn't. Who _is_ she?"
+
+"I told you, I don't have anything," said Katya icily. "Why don't you scry _him_ or look inside _his_ brain or something? This is your specialty."
+
+"Katya." The word came with the force of an order.
+
+Katya crumpled up her face and buried it in her palms to massage it. A few tears came loose. She felt a stress headache developing.
+
+"Fine," she said. "I'll explain to you who ▓▒▓▓▓▓▒ thinks this 'Artemis' is. Will you be satisfied if I do that?"
+
+Pyotr nodded. "I will. Though, I'm surprised to see this reluctance from you. The most difficult thing a rationalist learns is to force themselves to confront difficult ideas directly, instead of shying away from them like everyone else does. And you are among our strongest members. I _know_ you know how to do this. Is the subject of Artemis really so powerful that it can defeat even you?"
+
 <br />
 
 <div id="disqus_thread"></div>
