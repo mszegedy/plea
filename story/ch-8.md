@@ -94,7 +94,27 @@ Katya crumpled up her face and buried it in her palms to massage it. A few tears
 
 "Fine," she said. "I'll explain to you who ▓▒▓▓▓▓▒ thinks this 'Artemis' is. Will you be satisfied if I do that?"
 
-Pyotr nodded. "I will. Though, I'm surprised to see this reluctance from you. The most difficult thing a rationalist learns is to force themselves to confront difficult ideas directly, instead of shying away from them like everyone else does. And you are among our strongest members. I _know_ you know how to do this. Is the subject of Artemis really so powerful that it can defeat even you?"
+Pyotr nodded. "I will. Though, I'm surprised to see this reluctance from you. The most difficult thing a rationalist learns is to force themselves to confront difficult ideas directly, instead of shying away from them like everyone else. And you're among our strongest members. I _know_ you know how to do this. Is Artemis really so powerful that just the idea of her can defeat you?"
+
+"First of all," snapped Katya, "Stop fucking calling her that. I mean, him. He's ▓▒▓▓▓▓▒. He's a man who's deluded himself into thinking women are the kind of people who'd seriously consider naming themselves after Greek goddesses. And that he's one of them."
+
+"I concede that 'Artemis' is an unlikely name for a woman, but I don't think pagan goddesses really enter into the equation. After all, 'Diana' is a perfectly common name," observed Pyotr. "Overall, I find 'Artemis' inoffensive, and honestly a little cool."
+
+Katya fixed an intense glare on Pyotr. "Because you're a _man._ It's exactly what a _man_ would come up with if he tried to pretend he knew anything about women."
+
+"I seriously don't see why it matters so much to you," said Pyotr. "Sure, the pronoun stuff is counterintuitive, and there's the issue of bathrooms, but distinguishing between men and women is an _extremely_ low priority issue for the Sump. It has basically nothing to do with our mission at all. I can see---"
+
+"Don't _DO_ this to me!" exploded Katya. "You---you of all people should see how _warped_ your model of the world has to be to misclassify yourself like this! Trans-so-called-women pattern with men in _every_ way. They take the jobs men take. They have the interests men have. They talk like men do! 'Male' and 'female' are _predictive categories._ Knowing who someone is is the only thing they're good for, so if someone goes and _lies_ about which category they belong to---"
+
+"Katya," said Pyotr. "I get it. Really. I'm sorry I made light of it. You're right, transsexuals are not very good rationalists."
+
+"They are _the_ reason---"
+
+"_But,_" interrupted Pyotr, "I came here to learn about ▓▒▓▓▓▓▒. And I still don't know _anything_ about her. Him, sorry. Could you _please_ tell me about him? As an individual, not just as a transsexual."
+
+"Those two are one and the same," replied Katya casually. "You can't separate transness out of someone's identity. It's like separating the hydrogens out of water. If you do, it's just not water anymore."
+
+Pyotr didn't reply. He felt that if Katya kept talking, she might finally naturally meander from here back to the topic he'd asked for.
 
 <br />
 
