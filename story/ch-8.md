@@ -88,7 +88,7 @@ Pyotr nodded.
 
 "I told you, I don't have anything," said Katya icily. "Why don't you scry _him_ or look inside _his_ brain or something? This is your specialty."
 
-"Katya." The word came with the force of an order.
+"Katya." The word was all Pyotr needed to warn Katya to stop flouting his authority.
 
 Katya crumpled up her face and buried it in her palms to massage it. A few tears came loose. She felt a stress headache developing.
 
