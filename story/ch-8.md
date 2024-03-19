@@ -1,6 +1,6 @@
----
+—
 title: Chapter 8
----
+—
 
 **This chapter is unfinished.**
 
@@ -22,7 +22,7 @@ A window of KWord, open to `ryzhaya-notes.kwd`.
 > 
 > I want to end this entry with something pithy, but I'm too tired. I'll just register my unhappiness one more time that things turned out this way with Alexey. I want my friend back.
 
----
+—
 
 "Sofia, is it okay if I handle this one?" asked Alexey.
 
@@ -50,7 +50,7 @@ Everyone except Tosha nodded. "Wait, sorry," he asked. "Who's Pyotr Ivanovitch?"
 
 A short pause and a shrug. "Maybe?"
 
----
+—
 
 Katya Konstantinovna Narodova sat in her office at the Sump, poring over last week's schedule, and a mostly blank table that would become next week's. She would have greatly preferred to go out into the various lounges and socialize with other members, and she spent many hours most days doing just that, but as Pyotr's second in command, most day-to-day management tasks that didn't involve grand strategy fell to her. She took great pride in everything she could contribute, and couldn't rest comfortably until everything was typeset, printed, and filled out with a nigh-artistic degree of calligraphy, frequently involving the use of rulers and compasses in addition to her beloved mechanical pencil set. She could have written in pen, for all the mistakes she made. But she could not emotionally countenance the idea of committing to what might be a mistake, so she wrote in pencil, and kept an essentially sterile kneaded eraser that never needed replacing.
 
@@ -102,13 +102,13 @@ Pyotr nodded. "I will. Though, I'm surprised to see this reluctance from you. Th
 
 Katya fixed an intense glare on Pyotr. "Because you're a _man._ It's exactly what a _man_ would come up with if he tried to pretend he knew anything about women."
 
-"I seriously don't see why it matters so much to you," said Pyotr. "Sure, the pronoun stuff is counterintuitive, and there's the issue of bathrooms, but distinguishing between men and women is an _extremely_ low priority issue for the Sump. It has basically nothing to do with our mission at all. I can see---"
+"I seriously don't see why it matters so much to you," said Pyotr. "Sure, the pronoun stuff is counterintuitive, and there's the issue of bathrooms, but distinguishing between men and women is an _extremely_ low priority issue for the Sump. It has basically nothing to do with our mission at all. I can see—"
 
-"Don't _DO_ this to me!" exploded Katya. "You---you of all people should see how _warped_ your model of the world has to be to misclassify yourself like this! Trans-so-called-women pattern with men in _every_ way. They take the jobs men take. They have the interests men have. They talk like men do! 'Male' and 'female' are _predictive categories._ Knowing who someone is is the only thing they're good for, so if someone goes and _lies_ about which category they belong to---"
+"Don't _DO_ this to me!" exploded Katya. "You—you of all people should see how _warped_ your model of the world has to be to misclassify yourself like this! Trans-so-called-women pattern with men in _every_ way. They take the jobs men take. They have the interests men have. They talk like men do! 'Male' and 'female' are _predictive categories._ Knowing who someone is is the only thing they're good for, so if someone goes and _lies_ about which category they belong to—"
 
 "Katya," said Pyotr. "I get it. Really. I'm sorry I made light of it. You're right, transsexuals are not very good rationalists."
 
-"They are _the_ reason---"
+"They are _the_ reason—"
 
 "_But,_" interrupted Pyotr, "I came here to learn about ▓▒▓▓▓▓▒. And I still don't know _anything_ about her. Him, sorry. Could you _please_ tell me about him? As an individual, not just as a transsexual."
 
