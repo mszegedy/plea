@@ -88,7 +88,7 @@ Pyotr nodded.
 
 "I told you, I don't have anything," said Katya icily. "Why don't you scry _him_ or look inside _his_ brain or something? This is your specialty."
 
-"Katya." The word was all Pyotr needed to warn Katya to stop flouting his authority.
+"Katya." A warning.
 
 Katya crumpled up her face and buried it in her palms to massage it. A few tears came loose. She felt a stress headache developing.
 
@@ -115,6 +115,48 @@ Katya fixed an intense glare on Pyotr. "Because you're a _man._ It's exactly wha
 "Those two are one and the same," replied Katya casually. "You can't separate transness out of someone's identity. It's like separating the hydrogens out of water. If you do, it's just not water anymore."
 
 Pyotr didn't reply. He felt that if Katya kept talking, she might finally naturally meander from here onto the topic he'd asked for.
+
+"With ▓▒▓▓▓▓▒… I'm not sure what identity he's trying to create, exactly," continued Katya. "He's always been somewhat of a loner. Before he came to the Sump, he was living entirely alone, and running a sledge courier business. He would spend days travelling alone, and then return home to be _also_ alone. If gender is a performance, then I'm not sure who he initially started performing for. Certainly not us."
+
+This wasn't Pyotr's most pressing question, but: "It was a motor sledge?"
+
+"What? No, a regular one."
+
+"…so he kept reindeer?"
+
+"…yeah. Obviously."
+
+"So he wasn't alone."
+
+Katya rolled her eyes. "Yes, I'm sure his reindeer were excellent company."
+
+As someone who'd spent time as a reindeer before, Pyotr was mildly offended, but didn't say anything.
+
+"Anyway," continued Katya, "He sold his reindeer and came here. He wasn't a very notable or valuable member or anything; he never shared any of that money, or even really talked about it. I only found out about it by reading his thoughts during his interview. It was one of the reasons I recommended him."
+
+"How did his interview go, anyhow?"
+
+"Eh. I don't really remember, sorry. He was as reticent as ever, I think, but that's nothing special for our interviewees."
+
+Pyotr nodded. "I guess what I most want to know is, if he's a loner, how did he make friends with Alexey? Alexey's closest friend at the Sump was _me,_ and I don't think ▓▒▓▓▓▓▒ ever really cared for me. …why did he even join in the first place?"
+
+Katya shrugged. "Power? A desire to understand the world? A desire to be important? We have a lot to offer."
+
+"And the Alexey question?"
+
+Katya anxiously rubbed her mouth and chin. "I can't really say. They both disowned their families and took new surnames. And they're both introverts. Maybe they bonded over that?"
+
+Pyotr sighed. "They seem to have similar psychotypes at least, yeah. Like attracts like, I guess. Though I'm having trouble picturing Alexey ever running a sledge courier service by himself. Or deciding he's a girl."
+
+Her last breath of willpower exhausted, Katya slumped over on the table, moving the unfinished schedule out of the way first lest she smear its pencil marks. "Okay, Pyotr, I'm really tired now, and I really don't have anything else to contribute. Read my mind if you want, I really don't. May I be left alone now?"
+
+Pyotr paused a bit to process, then said, "Very well. Thanks for the intel, one way or the other. I think I'll model Art—I mean ▓▒▓▓▓▓▒, sorry, I don't know why that's so difficult—as essentially another Alexey, just with a different background. And, uh, gender identity, I guess. Oh, one more thing: do you know of any assets ▓▒▓▓▓▓▒ possesses besides the car? That's the only one we have on the books."
+
+Katya held both hands up in a weary "I don't know" gesture.
+
+"Alright," concluded Pyotr. "Thank you, Katya. See you around." He left, closing the door behind him.
+
+Katya let out a long, deep sigh. She noticed a bug on her desk, and tried to swat it, but it got away. It felt like her eyesight had been getting worse in the recent few months, and she couldn't identify what the bug had been. She hoped it wasn't a mosquito. She made a mental note to look into purchasing reading glasses.
 
 <br />
 
