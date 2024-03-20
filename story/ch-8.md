@@ -15,14 +15,14 @@ A window of KWord, open to `ryzhaya-notes.kwd`.
 > While trying to contact Alexey, I also found a girl called Sofia. Some sort of simulacrum of Alexey from a mirror world, but a girl. That doesn't make much sense to me, but admittedly I am not well-read in mirror magic. Did Alexey's mother create her out of pieces she tore out of Alexey? As a backup, maybe? As a better heir? Everyone knew she wanted her firstborn to be the heir. Alexey confided this in me many times himself. Strong evidence in favor of this hypothesis is that she seems to hold many of Alexey's missing memories of his childhood (but tweaked, to account for the fact that she's a girl). She's also missing memories of the period of time when Alexey was at the Sump; presumably Sofia Nikolaevna didn't want to give her memories of anything other than her grooming. It makes me more than a little ill to think about. To destroy a perfectly healthy boy and create an entirely new person, just to be your perfect heiress... but I suppose the latter half is what every monarch is trying to do. The Ryzhayas just have an utter lack of morals, and access to twenty generations of accumulated wealth in the form of the darkest and most toxic magic known to man.
 > 
 > I refuse to pity myself. I chose this, because of course I did, and I'm lucky to be in a position to be able to do anything about any of this. But even I have to admit that fighting monsters like these isn't as fulfilling as it's made out to be.
->
+> 
 > One hopeful consequence of this, however, is that Alexey is now walking around with memories of essentially nothing but being with the Sump. In trying to create the perfect heiress in Sofia Pankratyevna, did Sofia Nikolaevna also create an antithesis in Alexey? An... anti-heiress? He'd make a hell of an enemy to the Ryzhayas, if only. He'd. Come. Back. Arghh, I have to stop thinking about this. I'll waste all my time fantasizing about bringing Alexey back and getting his help with taking the Ryzhayas down for good. But... I don't know, this whole memory/Sofia thing does change things. I don't know. We'll need more reconnaissance. I'll think about what I can do.
 > 
 > As for the other Ryzhayas, nothing's happened yet. Anna Pankratyevna is still in Petroport with her aunt, and hopefully she stays there. The Konopatovs are still in Abga; I managed to stop the letters that were sent out to them, but someone is bound to call them eventually, not to mention all the supernatural ways the Ryzhayas have of communicating. (Yet another reason to exterminate mosquitos. _Nobody_ will miss them.) The Yagins are still off the grid entirely, but Egor should return in a couple days and we'll know more.
 > 
 > I want to end this entry with something pithy, but I'm too tired. I'll just register my unhappiness one more time that things turned out this way with Alexey. I want my friend back.
 
-—
+---
 
 "Sofia, is it okay if I handle this one?" asked Alexey.
 
@@ -50,7 +50,7 @@ Everyone except Tosha nodded. "Wait, sorry," he asked. "Who's Pyotr Ivanovitch?"
 
 A short pause and a shrug. "Maybe?"
 
-—
+---
 
 Katya Konstantinovna Narodova sat in her office at the Sump, poring over last week's schedule, and a mostly blank table that would become next week's. She would have greatly preferred to go out into the various lounges and socialize with other members, and she spent many hours most days doing just that, but as Pyotr's second in command, most day-to-day management tasks that didn't involve grand strategy fell to her. She took great pride in everything she could contribute, and couldn't rest comfortably until everything was typeset, printed, and filled out with a nigh-artistic degree of calligraphy, frequently involving the use of rulers and compasses in addition to her beloved mechanical pencil set. She could have written in pen, for all the mistakes she made. But she could not emotionally countenance the idea of committing to what might be a mistake, so she wrote in pencil, and kept an essentially sterile kneaded eraser that never needed replacing.
 
@@ -157,6 +157,48 @@ Katya held both hands up in a weary "I don't know" gesture.
 "Alright," concluded Pyotr. "Thank you, Katya. See you around." He left, closing the door behind him.
 
 Katya let out a long, deep sigh. She noticed a bug on her desk, and tried to swat it, but it got away. It felt like her eyesight had been getting worse in the recent few months, and she couldn't identify what the bug had been. She hoped it wasn't a mosquito. She made a mental note to look into purchasing reading glasses.
+
+---
+
+"What you don't immediately learn when you join the Sump," continued Alexey, "Is that rather than being built on… 'rationalism', as they call it… or on transhumanism, it's actually built very specifically on Pyotr Ivanovitch's fear of the end of the world. The _point_ of the Sump is to make other people as afraid of it as he is."
+
+The members of Alexey's audience not already familiar with Pyotr's eschatology did not immediately have a response to this. They each thought of possible ends for the world—meteors, destruction by gods, conquest by aliens or spirits, supervolcanoes, the death of the Sun—and privately wondered which of these Pyotr might consider particularly likely.
+
+"Is he afraid of the Rapture?" asked Sofia. "I have heard the Sump is religious, but I was never informed that they were a Christian cult."
+
+"Of sorts," said Alexey. "Not the Christian Rapture in particular. But there's common elements, and I do wonder if one influenced the other."
+
+"In that case, is it a fear of one of the gods losing a war?" asked Vasilisa. "I mean, I don't know much religion, but I figure if the Sun-Mother ever died—"
+
+"The only gods who ever fight are the Blizzard God and the Thunder God," interrupted Sofia. "If the Blizzard God were permanently defeated, I guess there would be no more winter? And permanent thunderstorms. Which would be pretty bad."
+
+"Can I please fucking finish my thought?" said Alexey, annoyed. "This isn't a guessing game. I'm trying to explain something."
+
+"Sorry," said Sofia timidly. Vasilisa nodded.
+
+"Pyotr is afraid of a spirit he calls the 'Exlex'. Latin for 'outlaw'," said Alexey. (_Oh, he means_ exlēx, thought Sofia. _Did Alexey never actually learn Latin?_) "It doesn't exist yet, but… uh… okay, this is hard to explain. How much do you guys know about how Russians use spirits?"
+
+The recent discovery of the utility of spirits by Russian civilization was a phenomenon impossible to escape. For centuries, the Russians, being devout Christians, had persecuted the animist-shamanist inclinations of native Siberians with mass murder, putting deep, septic scars in their cultural memory. Many native religions had been warped beyond recognition to appease the Christians, and many more had been destroyed utterly. The Aas River Basin's cultures had survived only thanks to the complete lack of effort invested by the Russian Empire into the region's infrastructure, and though they at least had a rail system now, this was a very new accident of history. The Russians saw nothing of value in Samoyedic culture, or any other Siberian culture, save for furs, fish, and mammoth ivory.
+
+That was until two decades or so ago, when the first Russian spirit was bound by an entrepreneur. 
+
+"Russian spirits… make me uncomfortable," said Sofia. "They feel tainted somehow. As though they were shadows of the spirit of Russian culture itself. Not that… not that I have anything against Russian culture, I guess." (Privately, everyone else thought of all the things they very much did have against Russian culture.) "But, you know how if you talk to a spirit in Keleykh, it'll tell you about what it's like to live here, what it's learned from humans, how it feels about the weather, that sort of thing?"
+
+No. Nobody in the conversation except perhaps Alexey knew. But Sofia had explained herself well, so it was not an issue.
+
+"Well," continued Sofia, "Russian spirits don't do that. They… they pretend to be people, I guess? I mean, they pretend to be humans. I think they even _think_ they're humans. And not normal humans, either. Creepy idealized ones, all of them the same. The sort that Russians would want as slaves in their—their factories, and whatever."
+
+"They don't really get used in factories," said Alexey. "Most Russian spirits are used for intellectual tasks, like writing formal letters or teaching children. Or for therapy."
+
+Sofia was aghast. "They… on my mother, I can't tell which of those is worse. There are people being raised right now by these… these carved dolls?"
+
+This reaction raised a few alarm bells in Alexey's head, and he had trouble deciding whether or not to address it. He decided to offer a mild rebuttal: "I mean, they're still spirits. It's not like they're fake, or something. And honestly, worrying about what new ideas and technologies do to children is a little… uh… it's kinda never been a productive line of reasoning, yeah? The actual problem is economic."
+
+"…economic," repeated Sofia skeptically.
+
+"_I've got this,_" butted in Artemis, holding up a palm towards Alexey and looking Sofia square in the eyes. "Russian spirits are trained by exposing them to _hundreds_ of native spirits at a time and _tens of thousands_ of Russian people. Usually the very people they're supposed to replace! It is a _shameless_ exploitation of the labor of the masses and hitherto stigmatized and persecuted elements of native culture, entirely so that the few Russian oligarchs with the means to train these spirits can get rich. And in doing so, these people only reify the blandest and most marketable aspects of Russian culture as a whole—you were absolutely correct, they really _are_ shadows of some sort of horrible Spirit of Russia. And that is in itself a terrible, terrible thing. You have nothing against Russian culture? Really? How have the Russians treated you and your family?"
+
+"Okay, fine," said Sofia, feeling rather angry and confused by being lectured when she wasn't even sure what she did wrong. "Whatever. I don't want to talk about that. I believe you. Russian spirits are bad because they are made by rich people exploiting everyone else. And because they're a reflection of the worst parts of Russia. We're on the same page."
 
 <br />
 
