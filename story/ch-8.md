@@ -1,8 +1,6 @@
-—
+---
 title: Chapter 8
-—
-
-**This chapter is unfinished.**
+---
 
 [**Previous**](ch-7.html)
 
