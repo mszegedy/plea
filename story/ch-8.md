@@ -176,7 +176,7 @@ The members of Alexey's audience not already familiar with Pyotr's eschatology d
 
 "Sorry," said Sofia timidly. Vasilisa nodded.
 
-"Pyotr is afraid of a spirit he calls the 'Exlex'. Latin for 'outlaw'," said Alexey. (_Oh, he means_ exlēx, thought Sofia. _Did Alexey never actually learn Latin?_) "It doesn't exist yet, but… uh… okay, this is hard to explain. How much do you guys know about how Russians use spirits?"
+"Pyotr is afraid of a spirit he calls the 'Exrex'. Latin for 'outlaw'," said Alexey. (_Oh, he means_ exlēx, thought Sofia. _Did Alexey never actually learn Latin? Did Pyotr Ivanovitch?_) "It doesn't exist yet, but… uh… okay, this is hard to explain. How much do you guys know about how Russians use spirits?"
 
 The recent discovery of the utility of spirits by Russian civilization was a phenomenon impossible to escape. For centuries, the Russians, being devout Christians, had persecuted the animist-shamanist inclinations of native Siberians with mass murder, putting deep, septic scars in their cultural memory. Many native religions had been warped beyond recognition to appease the Christians, and many more had been destroyed utterly. The Aas River Basin's cultures had survived only thanks to the complete lack of effort invested by the Russian Empire into the region's infrastructure, and though they at least had a rail system now, this was a very new accident of history. The Russians saw nothing of value in Samoyedic culture, or any other Siberian culture, save for furs, fish, and mammoth ivory.
 
