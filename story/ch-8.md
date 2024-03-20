@@ -196,9 +196,37 @@ This reaction raised a few alarm bells in Alexey's head, and he had trouble deci
 
 "…economic," repeated Sofia skeptically.
 
-"_I've got this,_" butted in Artemis, holding up a palm towards Alexey and looking Sofia square in the eyes. "Russian spirits are trained by exposing them to _hundreds_ of native spirits at a time and _tens of thousands_ of Russian people. Usually the very people they're supposed to replace! It is a _shameless_ exploitation of the labor of the masses and hitherto stigmatized and persecuted elements of native culture, entirely so that the few Russian oligarchs with the means to train these spirits can get rich. And in doing so, these people only reify the blandest and most marketable aspects of Russian culture as a whole—you were absolutely correct, they really _are_ shadows of some sort of horrible Spirit of Russia. And that is in itself a terrible, terrible thing. You have nothing against Russian culture? Really? How have the Russians treated you and your family?"
+"_I've got this,_" butted in Artemis, holding up a palm towards Alexey and looking Sofia square in the eyes. "Russian spirits are trained by exposing them to _hundreds_ of native spirits at a time and _tens of thousands_ of Russian people. Usually the very people they're supposed to replace! It is a _shameless_ exploitation of the labor of the masses and hitherto stigmatized and persecuted elements of native culture, entirely so that the few Russian oligarchs with the means to train these spirits can get rich. And in doing so, these people only reify the most cowardly and marketable aspects of Russian culture as a whole. You were absolutely correct, they really _are_ shadows of some sort of horrible Spirit of Russia. And that is in itself a terrible, terrible thing. You have nothing against Russian culture? Really? How have the Russians treated you and your family?"
 
-"Okay, fine," said Sofia, feeling rather angry and confused by being lectured when she wasn't even sure what she did wrong. "Whatever. I don't want to talk about that. I believe you. Russian spirits are bad because they are made by rich people exploiting everyone else. And because they're a reflection of the worst parts of Russia. We're on the same page."
+"Okay, fine," said Sofia, feeling rather angry and confused at being lectured when she didn't even do anything wrong. "Whatever. I don't want to talk about that. I believe you. Russian spirits are bad because they are made by rich people exploiting everyone else. And because they're a reflection of the worst parts of Russia. We're on the same page."
+
+"Okay, thank you, Artemis," said Alexey. "Yeah, what she said. They took our thing and did a bad job of it. And now they're getting rich off of it while screwing everyone else over."
+
+"Not exactly new for Russians," said Vasilisa uncharacteristically bitterly. "Or their oligarchs, I mean. Even most Russians hate them. Except for the ones who want to be them."
+
+"What I wonder is, why doesn't Keleykh have its own local oligarch who's in Moscow's pocket?" said Artemis. "Pyotr Ivanovitch doesn't really count. That makes us pretty lucky."
+
+"Yeah, we have our own, homegrown insane guy instead," said Alexey, rolling his eyes. "I mean, pretty sure he's still Russian. Though I think he has Komi ancestry. But he's from around here."
+
+"His ancestry records are probably in Purtov's book," said Sofia. "If not, I'm sure I can compile some from the other materials around here. The Sump's family ties might be important."
+
+"It's easier to keep track of families who _don't_ have ties to the Sump," said Alexey. "Pretty much everyone in Keleykh has got at least one family member among them. Though often it'll be someone fed up with their family, not someone loyal."
+
+"Like you," said Sofia.
+
+"Like me," agreed Alexey. "Okay, now that we've successfully gotten back on topic: the reason Pyotr Ivanovitch founded the Sump is that he figures that, because spirits can learn from other spirits, their power can increase limitlessly. He's worried that one day, someone—probably a Russian—will bind and train a spirit powerful enough to take over the world. And murder the gods, or whatever. I don't think he's worried about a specific scenario, just anything bad that someone can do with a powerful spirit. That's the Exrex."
+
+His audience, minus Artemis, exchanged glances.
+
+"I mean… I guess?" said Vasilisa.
+
+"It's theoretically possible," considered Sofia. "Not really in the current ecosystem. And not really with current methods. Spirits are kind of stupid. You can't actually teach them an infinite amount of stuff, or give them an infinite amount of power. The Russians have more or less reached the limit of what they can do with their training methods alone, in the past few years. But… I can see what he's afraid of."
+
+"So…" began Tosha, who hadn't wanted to interrupt until Alexey had completed his explanation, "What do the Sump want to do about this? Do they kill spirits?"
+
+"They, uh… it's complicated," said Alexey. "But no. They sometimes kill abominations, because they figure they're examples of evil spirits, or whatever. But mainly what they actually want to do is… make a version of the Exrex themselves."
+
+In three voices: "What."
 
 <br />
 
