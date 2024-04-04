@@ -80,7 +80,7 @@ Pyotr nodded.
 
 "I'm not really here for his name," said Pyotr. "I want to know more about his _identity._ The name was just a segue."
 
-"His identity? Do you want me to… to fucking explain transsexuality to you again, or what?" They had gotten to the part of the conversation that Katya had desperately hoped to avoid.
+"His identity? Do you want me to… to fucking explain transsexuality to you again, or what?" They had gotten to the part of the conversation that Katya had desperately hoped to avoid. They could have this conversation, but not today. Please, not today.
 
 "Look, Katya," said Pyotr. "If I'm to fight Alexey, I'll be fighting his friends, too. And I know ▓▒▓▓▓▓▒… or, er, 'Artemis', is his closest friend. You knew her, and I didn't. Who _is_ she?"
 
@@ -112,7 +112,7 @@ Katya fixed an intense glare on Pyotr. "Because you're a _man._ It's exactly wha
 
 "Those two are one and the same," replied Katya casually. "You can't separate transness out of someone's identity. It's like separating the hydrogens out of water. If you do, it's just not water anymore."
 
-Pyotr didn't reply. He felt that if Katya kept talking, she might finally naturally meander from here onto the topic he'd asked for.
+Pyotr didn't reply. He felt that if Katya kept talking, she might finally naturally meander from here onto the topic he'd asked for. She was normally prone to far longer and less direct digressions, and the fact that she was so eager to get out of today's conversation was an enormous help to its productivity.
 
 "With ▓▒▓▓▓▓▒… I'm not sure what identity he's trying to create, exactly," continued Katya. "He's always been somewhat of a loner. Before he came to the Sump, he was living entirely alone, and running a sledge courier business. He would spend days travelling alone, and then return home to be _also_ alone. If gender is a performance, then I'm not sure who he initially started performing for. Certainly not us."
 
@@ -148,7 +148,7 @@ Pyotr sighed. "They seem to have similar psychotypes at least, yeah. Like attrac
 
 Her last breath of willpower exhausted, Katya slumped over on the table, moving the unfinished schedule out of the way first lest she smear its pencil marks. "Okay, Pyotr, I'm really tired now, and I really don't have anything else to contribute. Read my mind if you want, I really don't. May I be left alone now?"
 
-Pyotr paused a bit to process, then said, "Very well. Thanks for the intel, one way or the other. I think I'll model Art—I mean ▓▒▓▓▓▓▒, sorry, I don't know why that's so difficult—as essentially another Alexey, just with a different background. And, uh, gender identity, I guess. Oh, one more thing: do you know of any assets ▓▒▓▓▓▓▒ possesses besides the car? That's the only one we have on the books."
+Pyotr paused a bit to process, then said, "Very well. Thanks for the intel, one way or the other. I think I'll model Art—I mean ▓▒▓▓▓▓▒, sorry, I don't know why that's so difficult, maybe it just flows nicer—as essentially another Alexey, just with a different background. And, uh, gender identity, I guess. Oh, one more thing: do you know of any assets ▓▒▓▓▓▓▒ possesses besides the car? That's the only one we have on the books."
 
 Katya held both hands up in a weary "I don't know" gesture.
 
@@ -158,11 +158,21 @@ Katya let out a long, deep sigh. She noticed a bug on her desk, and tried to swa
 
 ---
 
-"What you don't immediately learn when you join the Sump," continued Alexey, "Is that rather than being built on… 'rationalism', as they call it… or on transhumanism, it's actually built very specifically on Pyotr Ivanovitch's fear of the end of the world. The _point_ of the Sump is to make other people as afraid of it as he is."
+As Keleykh had grown over time, the amount of effort that its builders put into deconstructing the Traps varied. Some neighborhoods were unrecognizable as ever having had them, while others coexisted with them entirely peacefully, other than perhaps having swept away or buried any rubble. Spheres were built around, barrels were paved over, berms were given ramps, and the odd spikes, pipes, and staircases were kept as roadside ornaments the same way one might line streets with trees. As the rest of the world slowly adopted eco-urbanism and sought to make their cities greener, Keleykh enjoyed only a pale imitation of their ideas, colored with the palette of Western Siberian tastes. For all the pines and shrubs its builders could have kept, the periphery of Keleykh instead received a hundred whispering poles, a thousand giant needles, and many kilometers of concrete wall with a sinuous missing lower half. Pines were far easier and more useful to remove than concrete or steel. Not every neighborhood desired to be a quarry, especially with the possibility of releasing nightmares.
+
+One such nightmare was now making its way down the street, towards Lykov House. It called itself Sofia, although it sounded a little disappointed every time it introduced itself this way. It did not know it was a nightmare. Only Pyotr Lykov knew, on account of his mastery of the magic of minds and identities.
+
+If one paid only the barest attention to their surroundings, it was a nice street to be walking down. It was overgrown and shaded on both sides, it was adequately paved with suburban Keleykh's trademark mix of gravel, sand, and slush, and where the morning sun shone through the canopy, its weak glare painted the ground with rainbows. However, the shade and canopy came not from willows or pines, but from curved, rusted steel pincers the size of telephone poles, bowed over the road. They were unable to be mistaken as the ribcage of some ancient metal snake, either, for off the road were visible many similar arcs pointing in random directions, like the hairs of a burr. Here and there, curved red-black debris slept in puddles of slush, presumably former hairs plucked out and degraded across the centuries, although there were no identifiable broken stems where they could have connected.
+
+Travelling by the side of the road, Sofia had to frequently crouch down to get past the protrusions. She didn't want to touch them, as they were both dirty and of an unpleasant crumbling texture, but between having to touch them and losing her balance to fall in the slush, she vastly preferred the former. She wasn't sure by what means this road was supposed to be traversible. Neither cars nor sledges could fit through here, and pedestrians were not accomodated in the slightest.
+
+In the distance, well ahead of Lykov House but still at least a hundred meters away, Sofia could make out a mirage of Pyotr Lykov. She steeled herself and tried to recall everything she'd learned the previous night. She had thought that she'd had considerable intelligence on the Sump already, but next to Alexey and Artemis's knowledge it looked like meaningless hearsay.
+
+"What you don't immediately learn when you join the Sump," Alexey had said, "Is that rather than being built on… 'rationalism', as they call it… or on transhumanism, it's actually built very specifically on Pyotr Ivanovitch's fear of the end of the world. The _point_ of the Sump is to make other people as afraid of it as he is."
 
 The members of Alexey's audience not already familiar with Pyotr's eschatology did not immediately have a response to this. They each thought of possible ends for the world—meteors, destruction by gods, conquest by aliens or spirits, supervolcanoes, the death of the Sun—and privately wondered which of these Pyotr might consider particularly likely.
 
-"Is he afraid of the Rapture?" asked Sofia. "I have heard the Sump is religious, but I was never informed that they were a Christian cult."
+"Is he afraid of the Rapture?" Sofia had asked. "I have heard the Sump is religious, but I was never informed that they were a Christian cult."
 
 "Of sorts," said Alexey. "Not the Christian Rapture in particular. But there's common elements, and I do wonder if one influenced the other."
 
@@ -172,11 +182,13 @@ The members of Alexey's audience not already familiar with Pyotr's eschatology d
 
 "Can I please fucking finish my thought?" said Alexey, annoyed. "This isn't a guessing game. I'm trying to explain something."
 
-"Sorry," said Sofia timidly. Vasilisa nodded.
+"Sorry," Sofia had said timidly. Vasilisa nodded.
 
-"Pyotr is afraid of a spirit he calls the 'Exrex'. Latin for 'outlaw'," said Alexey. (_Oh, he means_ exlēx, thought Sofia. _Did Alexey never actually learn Latin? Did Pyotr Ivanovitch?_) "It doesn't exist yet, but… uh… okay, this is hard to explain. How much do you guys know about how Russians use spirits?"
+"Pyotr is afraid of a spirit he calls the 'Exrex'. Latin for 'outlaw'," said Alexey. (_Oh, he means_ exlēx, Sofia had thought. _Did Alexey never actually learn Latin? Did Pyotr Ivanovitch?_) "It doesn't exist yet, but… uh… okay, this is hard to explain. How much do you guys know about how Russians use spirits?"
 
-The recent discovery of the utility of spirits by Russian civilization was a phenomenon impossible to escape. For centuries, the Russians, being devout Christians, had persecuted the animist-shamanist inclinations of native Siberians with mass murder, putting deep, septic scars in their cultural memory. Many native religions had been warped beyond recognition to appease the Christians, and many more had been destroyed utterly. The Aas River Basin's cultures had survived only thanks to the complete lack of effort invested by the Russian Empire into the region's infrastructure, and though they at least had a rail system now, this was a very new accident of history. The Russians saw nothing of value in Samoyedic culture, or any other Siberian culture, save for furs, fish, and mammoth ivory.
+Sofia, in the present, was feeling a little lost in the flashback. She felt that the more she reflected on this conversation, the more she was actually there, back at Shtchavel house, and the less she was on the road to Lykov House. It did not look like much of a road at all, now that she thought of it. Why had she even come here? The Sump had presumably invited her here to kill her. She would much rather have been back in that warm room with Alexey and his friends, answering his question about Russian spirits. The street faded from her mind.
+
+The recent discovery of the utility of spirits by Russian civilization was a phenomenon impossible to escape. For centuries, the Russians, being devout Christians, had persecuted the animist-shamanist inclinations of Siberian natives with mass murder, putting deep, septic scars in their cultural memory. Many native religions had been warped beyond recognition to appease the Christians, and many more had been destroyed utterly. The Aas River Basin's cultures had survived only thanks to the complete lack of effort invested by the Russian Empire into the region's infrastructure, and though they at least had a rail system now, this was a very new accident of history. The Russians saw nothing of value in Samoyedic culture, or any other Siberian culture, save for furs, fish, and mammoth ivory.
 
 That was until two decades or so ago, when the first Russian spirit was bound by an entrepreneur. 
 
@@ -186,39 +198,31 @@ No. Nobody in the conversation except perhaps Alexey knew. But Sofia had explain
 
 "Well," continued Sofia, "Russian spirits don't do that. They… they pretend to be people, I guess? I mean, they pretend to be humans. I think they even _think_ they're humans. And not normal humans, either. Creepy idealized ones, all of them the same. The sort that Russians would want as slaves in their—their factories, and whatever."
 
-"They don't really get used in factories," said Alexey. "Most Russian spirits are used for intellectual tasks, like writing formal letters or teaching children. Or for therapy."
+"They don't really get used in factories," said Alexey. "They use them for the same things Samoyeds do, broadly. Which is to say advice in dreams, mostly, but some have been taught to talk, write, and draw. They get used in, I dunno, schools and businesses and things. Where they might previously have employed humans to do those things."
 
-Sofia was aghast. "They… on my mother, I can't tell which of those is worse. There are people being raised right now by these… these carved dolls?"
+Sofia couldn't remember what she had said in reply to that. She, Alexey, and Artemis had discussed in some fashion the economics of how Russian spirits are made. Samoyed spirits were usually taken from the surrounding environment; if you tripped over a stone that showed you out of the way out of a blizzard, for example, then you could be assured that it contained a sympathetic spirit, and keep the stone as an idol. There were families that practiced more complicated and deliberate binding, such as the Ryzhayas, but it wasn't especially different in concept.
 
-This reaction raised a few alarm bells in Alexey's head, and he had trouble deciding whether or not to address it. He decided to offer a mild rebuttal: "I mean, they're still spirits. It's not like they're fake, or something. And honestly, worrying about what new ideas and technologies do to children is a little… uh… it's kinda never been a productive line of reasoning, yeah? The actual problem is economic."
+Russian spirits, however, did not even necessarily have the same sort of tiny locus of being that a Samoyed one might have. A million people could talk to the same spirit at the same time. A company could mass-produce and distribute idols that all reflected the same spirit. (Or copies of it? Nobody, not even the companies themselves, were sure about what they were actually doing.) Did this make it a god? How had the Russians figured out how to create and bind gods? And if it's a god, why does it seem like it's struggling to maintain the impression that it's even a real person, unlike a Samoyed spirit? Sofia had many questions she levelled at Alexey and Artemis, and they confessed that they did not know the details, either. Lykov explained it as some sort of feedback loop between millions of Russian people talking to these spirits every day, and a binding process that used their words and minds to create a facsimile of those people. Sofia remembered her mother being interested in that kind of magic in her last few years, but had not absorbed much, if any, of that by osmosis.
 
-"…economic," repeated Sofia skeptically.
+Back on the street, the world suddenly tripped over Sofia, and came tumbling, crashing into her. A puddle of mostly crude oil was dumped over her, and pressed up against her face and chest. She got up, feeling that it was very unfortunate that she'd be making her first extended impression on Pyotr Lykov covered in freezing oil.
 
-"_I've got this,_" butted in Artemis, holding up a palm towards Alexey and looking Sofia square in the eyes. "Russian spirits are trained by exposing them to _hundreds_ of native spirits at a time and _tens of thousands_ of Russian people. Usually the very people they're supposed to replace! It is a _shameless_ exploitation of the labor of the masses and hitherto stigmatized and persecuted elements of native culture, entirely so that the few Russian oligarchs with the means to train these spirits can get rich. And in doing so, these people only reify the most cowardly and marketable aspects of Russian culture as a whole. You were absolutely correct, they really _are_ shadows of some sort of horrible Spirit of Russia. And that is in itself a terrible, terrible thing. You have nothing against Russian culture? Really? How have the Russians treated you and your family?"
+This tore at her consciousness a bit. Keleykh did not have puddles of crude oil just lying around. That was the hallmark of nightmares, whether in the sense of abominations or the sense of bad dreams. Part of her wanted to scan around for abominations, but…
 
-"Okay, fine," said Sofia, feeling rather angry and confused at being lectured when she didn't even do anything wrong. "Whatever. I don't want to talk about that. I believe you. Russian spirits are bad because they are made by rich people exploiting everyone else. And because they're a reflection of the worst parts of Russia. We're on the same page."
+Sofia was sure now that she'd gone the wrong way, despite her excellent navigational skills. This was not a road at all, it was a dense forest of the curved spikes, with no particular path cleared through them. She could still see Lykov in the distance, through the brush, holding his drum. Alexey had never explained how a man so against death could have obtained such a drum, nor why it would increase his shamanic power to begin with. He appeared to be beating the drum and saying something, but Sofia couldn't hear it over the buzzing of her friends.
 
-"Okay, thank you, Artemis," said Alexey. "Yeah, what she said. They took our thing and did a bad job of it. And now they're getting rich off of it while screwing everyone else over."
+_Go away,_ they told her. _Big summoning. Smells bad. Wake up._
 
-"Not exactly new for Russians," said Vasilisa uncharacteristically bitterly. "Or their oligarchs, I mean. Even most Russians hate them. Except for the ones who want to be them."
+She did not yet wake up.
 
-"What I wonder is, why doesn't Keleykh have its own local oligarch who's in Moscow's pocket?" said Artemis. "Pyotr Ivanovitch doesn't really count. That makes us pretty lucky."
+---
 
-"Yeah, we have our own, homegrown insane guy instead," said Alexey, rolling his eyes. "I mean, pretty sure he's still Russian. Though I think he has Komi ancestry. But he's from around here."
-
-"His ancestry records are probably in Purtov's book," said Sofia. "If not, I'm sure I can compile some from the other materials around here. The Sump's family ties might be important."
-
-"It's easier to keep track of families who _don't_ have ties to the Sump," said Alexey. "Pretty much everyone in Keleykh has got at least one family member among them. Though often it'll be someone fed up with their family, not someone loyal."
-
-"Like you," said Sofia.
-
-"Like me," agreed Alexey. "Okay, now that we've successfully gotten back on topic: the reason Pyotr Ivanovitch founded the Sump is that he figures that, because spirits can learn from other spirits, their power can increase limitlessly. He's worried that one day, someone—probably a Russian—will bind and train a spirit powerful enough to take over the world. And murder the gods, or whatever. I don't think he's worried about a specific scenario, just anything bad that someone can do with a powerful spirit. That's the Exrex."
+"The reason Pyotr Ivanovitch founded the Sump," said Alexey, "Is that he figures that, because spirits can learn from other spirits, their power can increase limitlessly. He's worried that one day, someone—probably a Russian—will bind and train a spirit powerful enough to take over the world. And murder the gods, or whatever. I don't think he's worried about a specific scenario, just anything bad that someone can do with a powerful spirit. That's the Exrex."
 
 His audience, minus Artemis, exchanged glances.
 
 "I mean… I guess?" said Vasilisa.
 
-"It's theoretically possible," considered Sofia. "Not really in the current ecosystem. And not really with current methods. Spirits are kind of stupid. You can't actually teach them an infinite amount of stuff, or give them an infinite amount of power. The Russians have more or less reached the limit of what they can do with their training methods alone, in the past few years. But… I can see what he's afraid of."
+"It's theoretically possible," considered Sofia. "Not really in the current ecosystem. And not really with current methods. Spirits are kind of stupid. You can't actually teach them an infinite amount of stuff, or give them an infinite amount of power. While it's true that Russian spirits might be able to do that, for all we know, the only thing that's helped them get more powerful is connecting them to more people, which is a well the Russians have mostly tapped dry. But… I can see what he's afraid of."
 
 "So…" began Tosha, who hadn't wanted to interrupt until Alexey had completed his explanation, "What do the Sump want to do about this? Do they kill spirits?"
 
