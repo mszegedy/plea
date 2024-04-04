@@ -178,7 +178,7 @@ The members of Alexey's audience not already familiar with Pyotr's eschatology d
 
 "In that case, is it a fear of one of the gods losing a war?" asked Vasilisa. "I mean, I don't know much religion, but I figure if the Sun-Mother ever died—"
 
-"The only gods who ever fight are the Blizzard God and the Thunder God," interrupted Sofia. "If the Blizzard God were permanently defeated, I guess there would be no more winter? And permanent thunderstorms. Which would be pretty bad."
+"The only gods who ever fight are the Blizzard God and the Thunder God," Sofia had interrupted. "If the Blizzard God were permanently defeated, I guess there would be no more winter? And permanent thunderstorms. Which would be pretty bad."
 
 "Can I please fucking finish my thought?" said Alexey, annoyed. "This isn't a guessing game. I'm trying to explain something."
 
