@@ -41,3 +41,5 @@ Mirrored on [AO3](https://archiveofourown.org/works/53975965/) and [Wattpad](htt
 [Chapter 6](story/ch-6.html)
 
 [Chapter 7](story/ch-7.html)
+
+[Chapter 8](story/ch-8.html)
