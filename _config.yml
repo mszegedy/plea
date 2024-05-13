@@ -25,9 +25,9 @@ github_username:  mszegedy
 disqus:
   shortname: plea
 # the base hostname & protocol e.g. http://example.com
-url: https://mszegedy.github.io/plea/
+url: https://mszegedy.github.io
 # the subpath of the site e.g. /blog
-baseurl: ""
+baseurl: "/plea"
 
 remote_theme: jekyll/minima
 minima:
